@@ -1,0 +1,1 @@
+Hallucination of [[Jamie 'The Oracle' Valiant]]

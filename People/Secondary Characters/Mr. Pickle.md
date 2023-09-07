@@ -1,0 +1,1 @@
+Ghouled Pocket Weasel, grey with black spots

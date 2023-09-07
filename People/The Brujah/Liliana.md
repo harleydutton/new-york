@@ -1,0 +1,2 @@
+Inhabited by [[Krista]]
+[[Brujah]]

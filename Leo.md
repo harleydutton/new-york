@@ -1,0 +1,1 @@
+[[Izumi and Fukuyoko Ito]]'s makeup artist
