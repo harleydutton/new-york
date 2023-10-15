@@ -1,1 +1,1 @@
-[[Cosmo]]'s childer and briefly regent of [[The Chantry]] until she was killed by [[Eddie 'Bones' Bonesaw]]
+[[Cosimo]]'s childer and briefly regent of [[The Chantry]] until she was killed by [[Eddie 'Bones' Bonesaw]]
