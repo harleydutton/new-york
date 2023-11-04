@@ -4,13 +4,14 @@ The [[Player Character Group]] is awakened in [[Louisiana]]. Evil meeting with s
 The [[Player Character Group]] arrives in [[New York]]. [[Chud]] meets with [[Old Man Chalmers]]. [[Alcott Dracul]] is scorned at [[Brujah Elysium]]. [[Ash o' Lyn]] puts on a circus in the park. [[Hassan]] checked in at the [[Assamite Blood Bank]].
 ## Oct 29, day 2
 [[Ash o' Lyn]] meets with [[Christopher 'Thorne' Leighton]].
-[[Ash o' Lyn]] meets with [[George 'The General' Washington]]; sees [[Anthony 'Tony' _____]] while there.
+[[Ash o' Lyn]] meets with [[George 'The General' Washington]] on [[Staten Island]]; sees [[Anthony 'Tony' _____]] while there.
 [[Player Character Group]] blockades [[Jack Vallens]] from [[The Calling]] at behest of [[George 'The General' Washington]] as communicated to the group by [[Ash o' Lyn]].
 [[Izumi and Fukuyoko Ito]] parties all night and day with [[Jasper]] at [[Places/Toreador Elysium]].
 [[Hassan]] and [[Chud]] go to [[The Chantry]] and annoy [[Cong 'The Dominus' Chang]] and learn about [[The Unbonding]].
 ## Oct 30, day 3
-[[Maximillion]]'s [[The Calling]]. 
+[[Ash o' Lyn]] meets with [[Dr. Cantor]].
 [[Chud]] stalks [[Izumi and Fukuyoko Ito]] home, hides some blood coins, and invisibly comes to to the calling in her limo. 
+[[Maximillion]]'s [[The Calling]].
 [[Ash o' Lyn]] befriends [[Bast, Son of None]].
 [[Izumi and Fukuyoko Ito]] befriends [[Alexander]] who suggests she speak with [[Christopher 'Thorne' Leighton]] on the subject of gaining control of [[Ward Island]].
 ## Oct 31, day 4
@@ -39,11 +40,9 @@ Long ticks:
 [[Hassan]] gets [[A drop of fairy blood]] from [[Vera]].
 [[Otto Giovanni]] makes an appearance at [[The Calling]] and pisses off [[Izumi and Fukuyoko Ito]].
 [[George 'The General' Washington]] challenges [[Jack Vallens]] to a duel when he is discovered to be acting as [[Cosimo]]'s mouthpiece and the calling relocates to [[Time Square]].
-## need to place
-[[Ash o' Lyn]] meets with [[Dr. Cantor]]
 
-
-
+## Unsure
+none rn
 ## Experiments with graphical representations
 ```mermaid
 gantt

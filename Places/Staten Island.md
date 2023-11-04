@@ -1,0 +1,1 @@
+Where [[George 'The General' Washington]] lives in a log cabin with his horse and retinue.

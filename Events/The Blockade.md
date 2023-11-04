@@ -1,0 +1,1 @@
+The [[Player Character Group]] blasts the shit out of [[Jack Vallens]]'s sub/boat as he is trying to pass [[Hell Gate]] on the way to [[The Calling]] and prevents him from getting there. [[Chud]] sneaks onto his sub/boat and into his haven.
