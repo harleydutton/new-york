@@ -1,0 +1,1 @@
+When [[Vinificus 'Vinnie' _____]] died he caused a time loop until he didn't die using [[Chronix]]. This was a resetting 3-day period for a 10 mile bubble of [[New York]]
