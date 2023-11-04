@@ -1,2 +1,2 @@
 Circus performer, acrobat, and firebug
-[[Gangrel]]
+[[Clan Gangrel]]

@@ -1,1 +1,1 @@
-[[Assamite]] antidilluvian
+[[Clan Assamite]] antidilluvian

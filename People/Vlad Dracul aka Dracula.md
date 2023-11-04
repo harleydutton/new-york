@@ -1,1 +1,1 @@
-grandsire and father of [[Alcott Dracul]], likely [[Tzmisce]], infamous among kindred
+grandsire and father of [[Alcott Dracul]], likely [[Clan Tzmisce]], infamous among kindred

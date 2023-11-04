@@ -1,0 +1,1 @@
+the ritual [[Bast, Son of None]] used [[The Chantry Heist]] heist as cover for required the blood of 100 goats. [[Ash o' Lyn]] and [[Chud]] stole them.

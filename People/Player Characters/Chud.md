@@ -1,6 +1,6 @@
 Horribly scarred [[Nosferatu]] hillbilly, redneck, hick from Louisiana
 Friendly with [[Old Man Chalmers]]
-Pissed off [[The Dominus]]
+Pissed off [[Cong 'The Dominus' Chang]]
 
 Ghouled Animals:
 ![[Bubba]]

@@ -1,1 +1,1 @@
-[[Tzmisce]] sorcerer and of [[The Tremere]]
+[[Clan Tzmisce]] sorcerer and of [[The Tremere]]

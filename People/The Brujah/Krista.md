@@ -1,2 +1,2 @@
 Sire of [[Frank Leone]]
-[[Brujah]]
+[[Clan Brujah]]

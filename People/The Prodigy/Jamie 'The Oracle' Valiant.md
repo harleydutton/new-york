@@ -1,4 +1,4 @@
-[[Malkavian]]
+[[Clan Malkavian]]
 [[The Prodigy]]
 Panted "paintings"
 Speaks slowly, usually dressed different than last time

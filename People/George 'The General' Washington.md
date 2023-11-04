@@ -1,3 +1,3 @@
 Looks like George Washington
-[[Gangrel]]
+[[Clan Gangrel]]
 Grabbed [[Jack Vallens]] one time and slapped him multiple times

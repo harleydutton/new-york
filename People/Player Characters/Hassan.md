@@ -1,4 +1,4 @@
 [[Assamite Blood Bank]]
-[[Assamite]]
+[[Clan Assamite]]
 Childer of [[Aiesha]]
 Sire of [[Rob]]

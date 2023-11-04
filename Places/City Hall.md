@@ -1,1 +1,1 @@
-[[Ventrue]]
+[[Clan Ventrue]]

@@ -1,4 +1,4 @@
-Nominal leader of the [[Toreador Elysium]]
+Nominal leader of the [[Groups/Toreador Elysium]]
 Nobody more stylish or socially dangerous
-[[Toreador]]
+[[Clan Toreador]]
 Rejected the gift of [[Cóatl]] by killing her hummingbird [[Rupert]]

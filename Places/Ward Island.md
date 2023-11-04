@@ -1,0 +1,2 @@
+An island of crazy people.
+Ruled by [[Joseph Campbell]], a crazy human psychologist. Possibly a mage.

@@ -1,3 +1,3 @@
 Cuban MMA fighter
-[[Lasombra]]
+[[Clan Lasombra]]
 Member of [[The Prodigy]]

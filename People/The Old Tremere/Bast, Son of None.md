@@ -1,2 +1,2 @@
-One of the seven original [[Tremere]] and progenitor of the [[Baali]]
+One of the seven original [[Clan Tremere]] and progenitor of the [[Clan Baali]]
 [[The Tremere]]

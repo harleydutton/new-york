@@ -1,2 +1,2 @@
 Inhabited by [[Krista]]
-[[Brujah]]
+[[Clan Brujah]]

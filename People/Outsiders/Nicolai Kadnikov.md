@@ -1,5 +1,5 @@
 inventor wizard. conjuring and alchemy. russian. 
-[[Tremere]]
+[[Clan Tremere]]
 [[Outsider]]
 went to investigate [[The Time Loop]]
 invented [[The Bean]]
