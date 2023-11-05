@@ -2,7 +2,7 @@
  - The [[The Player Character Group]] is awakened in [[Louisiana]]
  - Evil meeting with sires and [[Ella]]
 	 - [[The Player Character Group]] is sent to NY to investigate [[The Peace]]
- - [[Chud]] drives the party to [[New York]] over the next 3 nights
+ - [[Chud]] drives the party to [[New York]] over the next three nights
 ## Oct 28, night 1
 - The [[The Player Character Group]] arrives in [[New York]]
 	- [[Chud]] meets with [[Old Man Chalmers]]
