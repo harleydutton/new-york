@@ -1,4 +1,4 @@
-- [[Hassan Ibn Haqim]]
+- [[Hasan Ibn Haqim]]
 - [[Lashtak]]
 - [[Hakeem Assam]]
 - [[Aiesha]]

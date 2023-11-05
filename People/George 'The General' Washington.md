@@ -1,4 +1,4 @@
 - Looks suspiciously like George Washington
 - [[Clan Gangrel]]
 - Grabbed [[Jack Vallens]] one time and slapped him multiple times
-- Cheated in [[The Duel]] and was executed by [[Hassan Ibn Haqim]] using [[The God Round]]
+- Cheated in [[The Duel]] and was executed by [[Hasan Ibn Haqim]] using [[The God Round]]
