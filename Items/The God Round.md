@@ -1,1 +1,1 @@
-A shotgun shell with the power of sunny D.
+A shotgun shell full of Sunny D.

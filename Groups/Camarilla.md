@@ -1,0 +1,2 @@
+- The old vampiric ways
+- Focused on hiding vampire society from humans

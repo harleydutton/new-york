@@ -1,1 +1,2 @@
-A prison created by [[Enoch 'EX' Xarr]]. A matrix style pod that runs a VR experience with life support system to keep a being placated and stable and unable to cause problems.
+- Prison created by [[Enoch 'EX' Xarr]]
+- Matrix style VR pod with life support

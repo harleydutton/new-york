@@ -1,4 +1,5 @@
-[[Dr. Cantor]]
-[[Eddie 'Bones' Bonesaw]]
-
-Anarch/sabbat gathering. Moves around, constant fighting, time fuckery such that people don't die and the fight can be epic.
+[[The Anarchs|Anarch]] and [[The Sabbat|Sabbat]] gathering. Host and location change regularly. Invite only but fairly open attendance.
+- [[Eddie 'Bones' Bonesaw]]
+- [[Dr. Cantor]]
+- [[Billy Rubio]]
+- [[James]]

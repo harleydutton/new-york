@@ -1,5 +1,5 @@
 [[Clan Malkavian]]
-[[The Prodigy]]
+[[The Prodigies]]
 Panted "paintings"
 Speaks slowly, usually dressed different than last time
 Imaginary friend named [[Louisa]]

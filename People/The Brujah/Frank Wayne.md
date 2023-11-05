@@ -1,3 +1,3 @@
 [[Clan Brujah]]
 Has an army of millitant ghouls
-[[Brujah Elysium]]
+[[The Brujah]]

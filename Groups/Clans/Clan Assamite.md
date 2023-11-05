@@ -1,1 +1,5 @@
-One of the clans, the assassins
+- [[Hassan Ibn Haqim]]
+- [[Lashtak]]
+- [[Hakeem Assam]]
+- [[Aiesha]]
+

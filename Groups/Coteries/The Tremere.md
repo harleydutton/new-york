@@ -1,0 +1,8 @@
+The seven founding members of clan [[Clan Tremere]]
+- [[Cruentus 'Vinnie' Vinificus]]
+- [[Bast, Son of None]]
+- [[Cong 'The Dominus' Chang]]
+- [[Deocar]]
+- [[Saladeem]]
+- [[Joshua]]
+- The Giovanni [[Otto Giovanni]] [[Diablerie]]

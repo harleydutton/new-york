@@ -1,1 +1,0 @@
-the seven founding members of clan [[Clan Tremere]]

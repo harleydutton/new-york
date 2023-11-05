@@ -1,4 +1,4 @@
 Sire of [[Franchesca]]
 [[Clan Tremere]]
-[[Outsider]]
+[[Outsiders]]
 currently a chair
