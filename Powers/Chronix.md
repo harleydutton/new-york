@@ -1,0 +1,3 @@
+- time manipulation magic
+- created by [[Cruentus 'Vinnie' Vinificus]]
+- knows or can know chronix: [[Chud]], [[Jamie 'The Oracle' Valiant]], [[Dr. Cantor]], [[Amy Bluetrail]], [[Jack Vallens]]

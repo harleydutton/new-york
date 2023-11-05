@@ -1,1 +1,2 @@
-thought not to exist by low ranking members of clan [[Clan Tremere]]
+- Thought not to exist by low ranking members of clan [[Clan Tremere]]
+- Detailed by [[Ethan's Little Black Book on the Unbonding]]

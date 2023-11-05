@@ -1,0 +1,3 @@
+- [[George 'The General' Washington]] challenged [[Jack Vallens]] to a duel to the death during [[Alcott Dracul]]'s [[The Calling]]
+- well attended
+- [[Times Square]]

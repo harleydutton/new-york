@@ -1,1 +1,3 @@
-A "don't cause trouble or I will use the US military to nuke your asses" mandate by [[George 'The General' Washington]]. 9/11 was in fact an inside job.
+- A "don't cause trouble or I will use the US military to nuke your asses" mandate by [[George 'The General' Washington]]
+- largely successful
+- 9/11 was, in fact, an inside job per [[Old Man Chalmers]]

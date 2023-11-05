@@ -1,0 +1,4 @@
+- a demon
+- seems female
+- known to [[Bast, Son of None]] for obvious reasons
+- uses [[Jamie 'The Oracle' Valiant]] as a mouthpiece
