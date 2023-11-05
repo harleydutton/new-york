@@ -1,1 +1,1 @@
-Blood tea, similar to [[The Bean]]
+- Blood tea, similar to [[The Bean]]

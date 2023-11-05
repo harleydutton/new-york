@@ -1,6 +1,6 @@
 Orchestrated by [[Bast, Son of None]] and [[Ash o' Lyn]].
 
-The [[Player Character Group]] conducted a raid on [[The Chantry]] to steal shit. [[Bast, Son of None]] used this as cover for a blood ritual requiring the blood of [[100 goats]].
+The [[The Player Character Group]] conducted a raid on [[The Chantry]] to steal shit. [[Bast, Son of None]] used this as cover for a blood ritual requiring the blood of [[100 goats]].
 
 - [[Hassan Ibn Haqim]] came in through the roof and did not interrupt a piano concert [[Cong 'The Dominus' Chang]] was watching.
 - [[Hassan Ibn Haqim]] spoke with [[Cong 'The Dominus' Chang]] and obtained [[The Upstate Map]] and the [[Dracul Lineage]].

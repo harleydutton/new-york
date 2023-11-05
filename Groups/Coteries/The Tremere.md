@@ -1,3 +1,7 @@
+---
+aliases:
+  - The Seven
+---
 The seven founding members of clan [[Clan Tremere]]
 - [[Cruentus 'Vinnie' Vinificus]]
 - [[Bast, Son of None]]
