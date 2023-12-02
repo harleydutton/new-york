@@ -1,2 +1,2 @@
-- Prison created by [[Enoch 'EX' Xarr]]
+- Prison created by [[EX]]
 - Matrix style VR pod with life support

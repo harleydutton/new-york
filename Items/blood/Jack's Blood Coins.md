@@ -1,5 +1,5 @@
 Worth three points of blood, implying they are very high generation blood coins.
-[[Jack Vallens]] has a shit-pile of blood coins in his submarine
+[[Jack]] has a shit-pile of blood coins in his submarine
 [[Chud]] stole 21 blood coins from this stash
 There is a rat living in the sub's scrooge-mc-duck vault full of blood coins on the sub
 chud gave one coin to [[Jamie 'The Oracle' Valiant]]

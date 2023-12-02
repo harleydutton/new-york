@@ -12,3 +12,4 @@ Fukuyoko is a drug addict.
 
 lives in [[The Thorn]]
 
+fukuyomi goals: experience the life that was taken from her.

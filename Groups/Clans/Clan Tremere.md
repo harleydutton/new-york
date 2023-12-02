@@ -1,5 +1,5 @@
 - [[Cosimo]]
-- [[Cruentus 'Vinnie' Vinificus]]
+- [[Vinnie]]
 - [[Dr. Cantor]]
 - [[Dr. Lee Sung]]
 - [[Nicolai Kadnikov]]

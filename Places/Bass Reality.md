@@ -1,2 +1,2 @@
-- haven of [[Enoch 'EX' Xarr]]
+- haven of [[EX]]
   

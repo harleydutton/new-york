@@ -1,6 +1,11 @@
+---
+aliases:
+  - Diviciacus
+  - Cruentus Vinificus
+---
 [[Clan Tremere]]
 Creator of the [[Chronix]] discipline and [[The Outsiders]] nonsense
-Feels pure hate for [[Jack Vallens]]
+Feels pure hate for [[Jack]]
 Creator, member, and leader of [[The Tremere]]
 "Cruentus Vinificus" means "blood mage"
 Alias: Cruentus Vinificus, Diviciacus

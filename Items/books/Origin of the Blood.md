@@ -1,2 +1,2 @@
 Stolen from [[The Chantry]] vaults by [[Chud]].
-Story of [[Lillith]] and [[Cruentus 'Vinnie' Vinificus]] fighting over the mantle of blood, which grants everlasting life. Indicates that vinnie is older than biblical stories.
+Story of [[Lillith]] and [[Vinnie]] fighting over the mantle of blood, which grants everlasting life. Indicates that vinnie is older than biblical stories.

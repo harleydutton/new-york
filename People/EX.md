@@ -1,4 +1,8 @@
-affiliated with [[Jack Vallens]]
+---
+aliases:
+  - Enoch Xarr
+---
+affiliated with [[Jack]]
 jailor of 2/4 [[The Outsiders]]s
 2nd generation vampire
 Of [[Enoch, the First City]]

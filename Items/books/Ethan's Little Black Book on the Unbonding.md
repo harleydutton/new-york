@@ -1,3 +1,3 @@
 - Details the [[The Unbonding]]
-- [[Chud]] and [[Hasan Ibn Haqim]] took pictures of it
+- [[Chud]] and [[Hasan]] took pictures of it
 - written by [[Ethan Pliskin]]

@@ -1,1 +1,1 @@
-[[George 'The General' Washington]]'s horse
+[[The General]]'s horse

@@ -3,7 +3,7 @@ aliases:
   - The Seven
 ---
 The seven founding members of clan [[Clan Tremere]]
-- [[Cruentus 'Vinnie' Vinificus]]
+- [[Vinnie]]
 - [[Bast, Son of None]]
 - [[Cong 'The Dominus' Chang]]
 - [[Deocar]]

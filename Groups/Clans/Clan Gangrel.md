@@ -1,3 +1,3 @@
-- [[George 'The General' Washington]]
-- [[Ash o' Lyn]]
+- [[The General]]
+- [[Ash]]
 - [[Cóatl]]

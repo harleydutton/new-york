@@ -1,0 +1,1 @@
+- breaks blood bonds always and forever and makes it so the user cannot blood bond anyone
