@@ -1,1 +1,1 @@
-[[Izumi and Fukuyoko Ito]]'s stylist and herd member
+[[Lady Ito]]'s stylist and herd member

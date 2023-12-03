@@ -1,2 +1,2 @@
 - [[Levay]]
-- [[Bast, Son of None]]
+- [[Bast]]

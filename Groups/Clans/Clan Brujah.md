@@ -2,4 +2,4 @@
 - [[Frank Wayne]]
 - [[Krista]]
 - [[Liliana]]
-- [[Red Heels]]
+- [[The Red Heels]]

@@ -3,6 +3,6 @@ A group of scouts sent to [[New York]] to investigate [[The Peace]]
 - [[Ash]]
 - [[Hasan]]
 - [[Alcott Dracul]]
-- [[Izumi and Fukuyoko Ito]]
+- [[Lady Ito]]
 
 

@@ -1,5 +1,9 @@
+---
+aliases:
+  - Assamites
+---
 - [[Hasan]]
 - [[Lashtak]]
 - [[Hakeem Assam]]
-- [[Aiesha]]
+- [[Ayesha]]
 

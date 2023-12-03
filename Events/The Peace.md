@@ -1,3 +1,3 @@
 - A "don't cause trouble or I will use the US military to nuke your asses" mandate by [[The General]]
 - largely successful
-- 9/11 was, in fact, an inside job per [[Old Man Chalmers]]
+- 9/11 was, in fact, an inside job per [[Chalmers]]

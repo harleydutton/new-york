@@ -1,1 +1,0 @@
-[[Izumi and Fukuyoko Ito]]'s newest childer

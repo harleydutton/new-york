@@ -1,1 +1,0 @@
-[[Old Man Chalmers]] ghouled racoon

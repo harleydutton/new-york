@@ -1,2 +1,2 @@
 - [[Chud]]
-- [[Old Man Chalmers]]
+- [[Chalmers]]

@@ -1,4 +1,4 @@
-Ate [[Joshua]] to become a wizard [[The Tremere]]
+Ate [[Joshua]] to become a wizard [[The Seven]]
 Lives in [[The Plant Building]]
 Member of [[The New Gods]]
 claimed to [[Chud]] that she was opposed to and hates the [[The Outsiders]]s

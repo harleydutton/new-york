@@ -1,0 +1,2 @@
+-  Has a limo
+- [[Clan Assamite]] elder

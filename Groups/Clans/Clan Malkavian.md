@@ -1,2 +1,2 @@
 - [[Jamie 'The Oracle' Valiant]]
-- [[Izumi and Fukuyoko Ito]]
+- [[Lady Ito]]

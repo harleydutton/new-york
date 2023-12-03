@@ -1,4 +1,4 @@
-This conversation between [[Jack]], [[EX]], and [[Cosimo]] was overheard by [[Chud]] after sneaking onto [[Jack's Submarine|Jack's Boat]] and hiding in the Scrooge Mc Duck pile of [[Jack's Blood Coins]] during the events of [[The Duel]].
+This conversation between [[Jack]], [[EX]], and [[Cosimo]] was overheard by [[Chud]] after sneaking onto [[Jack's Submarine|Jack's Boat]] and hiding in the Scrooge Mc Duck pile of [[Blood Coins]] during the events of [[The Duel]].
 
 Jack - WHAT THE FUCK!?
 EX - This is your own doing. 

@@ -1,6 +1,0 @@
-Main enforcers of the [[Camarilla]] in [[New York]] located at the [[Chrysler building]]
-- [[Frank Leone]]
-- [[Frank Wayne]]
-- [[Krista]]
-- [[Liliana]]
-- [[Red Heels]]

@@ -1,0 +1,3 @@
+- Small town in upstate [[New York]]
+- Warded to hell by [[Vinnie]] such that it is hard to think about the city
+- Home of [[Vinnie's Upstate Libary]]

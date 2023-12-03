@@ -1,3 +1,3 @@
-- Literally just 100 goats
-- "Rescued" from a scientific testing boat by [[Chud]] and [[Ash]]
-- Their blood was used in [[Bast, Son of None]]'s ritual during [[The Chantry Heist]]
+- Literally just 100.
+- "Rescued" from a scientific testing boat by [[Chud]] and [[Ash]] along with 50 more goats that Chud kept.
+- Their blood was used in [[Bast]]'s ritual during [[The Chantry Heist]].

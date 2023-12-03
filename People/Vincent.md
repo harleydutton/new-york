@@ -1,2 +1,2 @@
-[[Izumi and Fukuyoko Ito]]'s manager
+[[Lady Ito]]'s manager
 Bossy, Drinks

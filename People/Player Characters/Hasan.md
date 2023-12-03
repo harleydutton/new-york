@@ -2,9 +2,9 @@
 aliases:
   - Hasan Ibn Haqim
 ---
-- [[Assamite Blood Bank]]
+- Member of the [[Assamite Blood Bank]]
 - [[Clan Assamite]]
-- Childer of [[Aiesha]]
+- Childer of [[Ayesha]]
 - Sire of [[Rob]]
-- Executed [[The General]] for cheating in [[The Duel]]
-	- Eagle Slayer
+- Executed [[The General]] for cheating in [[The Duel]] and gained the moniker, "Eagle Slayer"
+- Killed [[George Lucas]]

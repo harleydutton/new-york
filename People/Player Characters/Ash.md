@@ -4,4 +4,4 @@ aliases:
 ---
 - Circus performer, acrobat, and firebug
 - [[Clan Gangrel]]
-- Alarming alliance with [[Bast, Son of None]]
+- Alarming alliance with [[Bast]]
