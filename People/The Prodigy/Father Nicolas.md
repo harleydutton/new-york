@@ -1,3 +1,3 @@
 [[Clan Tzmisce]]
 Runs a Ballet
-[[The Prodigies]]
+[[The Prodigy]]

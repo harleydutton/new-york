@@ -4,7 +4,7 @@ aliases:
   - Jamie Valiant
 ---
 - [[Clan Malkavian]]
-- member of [[The Prodigies]]
+- member of [[The Prodigy]]
 - paints
 - steals the clothes of those he feeds on
 - speaks slowly

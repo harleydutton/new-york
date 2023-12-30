@@ -1,6 +1,5 @@
 ---
-aliases:
-  - The Prodigy
+aliases: []
 ---
 - [[Tony]]
 - [[Billy Rubio]]

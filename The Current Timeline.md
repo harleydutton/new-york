@@ -93,8 +93,8 @@
 	- [[Billy Rubio]] then appears in his haven out of a shadow and asks more insistently
 	- [[Hasan]] privately names [[Billy Rubio]] prince of [[New York|The City]]
 - [[Hasan]], [[Chud]], and [[Glenn]] where they meet and speak to and get swindled by [[Vera]], and [[Fat Pat|Slim Jim]]
-- Just outside the lighthouse [[Roosevelt Island]] [[The Player Character Group]] meets with [[The Prodigies|The Prodigy]] and forms an alliance with them on the basis of [[Hasan]] naming [[Billy Rubio]] prince of [[New York|The City]]
-	- [[The Player Character Group]] is informed [[The Prodigies|The Prodigy]] has formed an alliance with [[Vlad Dracul]] and [[Bast]]. It is revealed [[Bast]] summoned [[Baal]] during the [[The Chantry Heist]] when [[Baal]] appears and joins the conversatrion.
+- Just outside the lighthouse [[Roosevelt Island]] [[The Player Character Group]] meets with [[The Prodigy|The Prodigy]] and forms an alliance with them on the basis of [[Hasan]] naming [[Billy Rubio]] prince of [[New York|The City]]
+	- [[The Player Character Group]] is informed [[The Prodigy|The Prodigy]] has formed an alliance with [[Vlad Dracul]] and [[Bast]]. It is revealed [[Bast]] summoned [[Baal]] during the [[The Chantry Heist]] when [[Baal]] appears and joins the conversatrion.
 	- [[Vlad Dracul]] has ousted [[Maximillion]] from his haven (the lighthouse) and has him staked above his throne during the meeting
 - After meeting [[Baal]], [[Clan Gangrel|Gangrel]] militants bust in through the windows and start trying to kill [[Hasan]] in revenge for executing [[The General]] during [[The Duel]]. There is a large fight filled with smoke grenades and gunfire.
 	- During the fight, [[Chud]] steals [[Maximillion]]'s body

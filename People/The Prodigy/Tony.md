@@ -2,7 +2,7 @@
 aliases:
   - Anthony
 ---
-- [[The Prodigies]]
+- [[The Prodigy]]
 - [[Clan Settite]]
 - feels a little greasy when you talk to him
 - Seems familiar like you saw him on TV

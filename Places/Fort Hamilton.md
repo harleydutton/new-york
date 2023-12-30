@@ -1,0 +1,1 @@
+- Where the [[Clan Gangrel|Gangrel]] loyal to [[The General]] make their haven
