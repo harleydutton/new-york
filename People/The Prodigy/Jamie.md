@@ -1,0 +1,15 @@
+---
+aliases:
+  - The Oracle
+  - Jamie Valiant
+---
+- [[Clan Malkavian]]
+- member of [[The Prodigies]]
+- paints
+- steals the clothes of those he feeds on
+- speaks slowly
+- Imaginary friend named [[Louisa]]
+- responsible for sending [[The Dream]]
+- mouthpiece and regularly possessee of [Kupala]]
+- on friendly terms with [[Bast]] and likely much of [[Clan Baali]]
+- sire of [[Lady Ito]]

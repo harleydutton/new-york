@@ -15,7 +15,7 @@ Friendly with [[Chalmers]]
 	- [[Chud's Truck|Semi Truck]]
 	- Welding equipment
 	- 1621ish [[Blood Coins]] in various stashes
-		- gave 1 coin to [[Jamie 'The Oracle' Valiant]]
+		- gave 1 coin to [[Jamie]]
 		- hid 2 coins in [[Lady Ito]]'s haven
 		- bought information from [[Chalmers]] for 1 coin
 		- hid 2 coins in [[Hell Gate]]

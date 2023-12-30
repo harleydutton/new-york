@@ -2,7 +2,7 @@
 aliases:
   - The Prodigy
 ---
-- [[Anthony 'Tony']]
+- [[Tony]]
 - [[Billy Rubio]]
 - [[Father Nicolas]]
-- [[Jamie 'The Oracle' Valiant]]
+- [[Jamie]]

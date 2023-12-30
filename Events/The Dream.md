@@ -1,0 +1,3 @@
+- Dream sent to [[The Player Character Group]] at the beginning of [[The Current Timeline]]
+- Sent by [[Jamie]]
+- Depicted [[Bast]] and hellfire demons demons fighting [[Krista]] and [[Frank Leone]] and [[Frank Wayne]]'s troops in the street.

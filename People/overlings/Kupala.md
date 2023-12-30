@@ -1,4 +1,4 @@
 - a demon
 - seems female
 - known to [[Bast]] for obvious reasons
-- uses [[Jamie 'The Oracle' Valiant]] as a mouthpiece
+- uses [[Jamie]] as a mouthpiece

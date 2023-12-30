@@ -1,1 +1,1 @@
-- [[Anthony 'Tony']]
+- [[Tony]]
