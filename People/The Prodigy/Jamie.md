@@ -9,7 +9,7 @@ aliases:
 - steals the clothes of those he feeds on
 - speaks slowly
 - Imaginary friend named [[Louisa]]
-- responsible for sending [[The Dream]]
+- responsible for sending [[The First Dream]]
 - mouthpiece and regularly possessee of [Kupala]]
 - on friendly terms with [[Bast]] and likely much of [[Clan Baali]]
 - sire of [[Lady Ito]]

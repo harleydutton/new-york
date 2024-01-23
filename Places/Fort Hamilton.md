@@ -1,1 +1,3 @@
 - Where the [[Clan Gangrel|Gangrel]] loyal to [[The General]] make their haven
+- still inhabited by [[General Hamilton]]
+- has a secret level

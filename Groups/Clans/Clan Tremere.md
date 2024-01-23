@@ -7,4 +7,4 @@
 - [[Sven]]
 - [[Franchesca]]
 - [[Deocar]]
-- [[Cong 'The Dominus' Chang]]
+- [[Cong Chang]]

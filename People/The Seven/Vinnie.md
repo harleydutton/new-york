@@ -2,6 +2,7 @@
 aliases:
   - Diviciacus
   - Cruentus Vinificus
+  - Vinnie's
 ---
 [[Clan Tremere]]
 Creator of the [[Chronix]] discipline and [[The Outsiders]] nonsense

@@ -1,0 +1,9 @@
+- [[The Chantry]] (I have no clue which one this is referring to)
+- [[Vinnie's Upstate Libary]]
+- [[Vinnie|Vinnie's]] chantry
+- [[Franchesca]] chantry
+- [[Cosimo|Cosimo's]] chantry
+- [[Cong Chang|The Dominus's]] chantry
+- Any of [[Vinnie|Vinnie's]] other libraries
+- Any other big important libraries in the city
+- Any chantries I missed

@@ -1,0 +1,3 @@
+- https://en.wikipedia.org/wiki/Alexander_Hamilton
+- probably a [[Clan Gangrel|Gangrel]] vampire
+- might have some control over the US military and nukes

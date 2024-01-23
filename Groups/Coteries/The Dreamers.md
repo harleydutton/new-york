@@ -1,0 +1,8 @@
+- A group of canaries sent to [[New York]] to investigate [[The Peace]] by [[Ella]], [[Floren]], [[Oleus]], [[Ayesha]], and ((Alcott's sire here))
+	- [[Chud]]
+	- [[Ash]]
+	- [[Hasan]]
+	- [[Alcott]]
+	- [[Lady Ito|Izumi]]
+	- [[Glenn]]
+- Experienced [[The Dreams]] along with a couple other characters

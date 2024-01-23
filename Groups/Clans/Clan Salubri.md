@@ -1,1 +1,5 @@
-- [[Amy Bluetrail]]
+---
+aliases:
+  - Salubri
+---
+- [[Amy]]

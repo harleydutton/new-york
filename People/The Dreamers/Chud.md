@@ -1,3 +1,8 @@
+---
+aliases:
+  - Chud's
+---
+
 Horribly scarred [[Clan Nosferatu]] hillbilly, redneck, hick from Louisiana
 Friendly with [[Chalmers]]
 

@@ -1,19 +1,19 @@
 ## Oct 25, three nights prior
- - The [[The Player Character Group]] is awakened in [[Louisiana]]
+ - The [[The Dreamers]] is awakened in [[Louisiana]]
  - Evil meeting with sires and [[Ella]]
-	 - [[The Player Character Group]] is sent to NY to investigate [[The Peace]]
+	 - [[The Dreamers]] is sent to NY to investigate [[The Peace]]
  - [[Chud]] drives the party to [[New York]] over the next three nights
 ## Oct 28, night 1
-- The [[The Player Character Group]] arrives in [[New York]]
+- The [[The Dreamers]] arrives in [[New York]]
 	- [[Chud]] meets with [[Chalmers]]
-	- [[Alcott Dracul]] is scorned at [[The Brujah]]
+	- [[Alcott]] is scorned at [[The Brujah]]
 	- [[Ash]] puts on a circus in the park and meets with [[Christopher 'Thorne' Leighton]]
 	- [[Hasan]] checked in at the [[Assamite Blood Bank]]
 ## Oct 29, night 2
-- [[Hasan]] and [[Chud]] go to [[The Chantry]] and annoy [[Cong 'The Dominus' Chang]] and get a phone-pictures copy of [[Ethan's Little Black Book on the Unbonding]]
-- [[Alcott Dracul]] goes to [[James]]/[[Billy Rubio]]'s [[The Calling]]
+- [[Hasan]] and [[Chud]] go to [[The Chantry]] and annoy [[Cong Chang]] and get a phone-pictures copy of [[Ethan's Little Black Book on the Unbonding]]
+- [[Alcott]] goes to [[James]]/[[Billy Rubio]]'s [[The Calling]]
 - [[Ash]] meets with [[The General]] (and [[Tony]]) on [[Staten Island]]
-	- [[The Player Character Group]] blockades [[Jack]] from [[The Calling]] at behest of [[The General]] as communicated to the group by [[Ash]]
+	- [[The Dreamers]] blockades [[Jack]] from [[The Calling]] at behest of [[The General]] as communicated to the group by [[Ash]]
 		- [[Lady Ito]] parties all night and night with [[Jasper]] at [[Toreador Elysium 1]]
 		- [[Chud]] welds himself inside [[Jack]]' submarine, and wakes up in his haven on [[Rikers Island]]
 ## Oct 30, night 3
@@ -23,39 +23,39 @@
 	- [[Ash]] befriends [[Bast]]
 	- [[Lady Ito]] befriends [[Alexander]] who suggests she speak with [[Christopher 'Thorne' Leighton]] on the subject of gaining control of [[Ward Island]]
 ## Oct 31, night 4
-- [[Lady Ito]] and [[Alcott Dracul]] visit [[Christopher 'Thorne' Leighton]] about [[Ward Island]] takeover
+- [[Lady Ito]] and [[Alcott]] visit [[Christopher 'Thorne' Leighton]] about [[Ward Island]] takeover
 - [[Ash]] plans a ritual/heist of [[The Chantry]] with [[Bast]]
 - [[Hasan]] and [[Chud]] go meet the neighbors [[Chalmers]] told them about
 	- One of them was spying on [[Hell Gate]] and tried to implicate chalmers when caught
-- Evil meeting is called and the [[The Player Character Group]] meets with [[Chalmers]] about the neighbors.
+- Evil meeting is called and the [[The Dreamers]] meets with [[Chalmers]] about the neighbors.
 	- [[Chud]] gives [[Chalmers]] one of [[Blood Coins]] to learn about [[The Peace]] and [[The General]]
 ## Nov 1, night 5
 - [[Lady Ito]] goes to the hive and meets with [[Cosimo]] (chair) and [[Franchesca]]
 - [[Ash]] and [[Chud]] go steal more than [[100 goats]]
 - [[The Chantry Heist]]
 ## Nov 2, night 6
-- [[Lady Ito]] and [[Alcott Dracul]] visit [[Cosimo]] at [[The Hive]]
-- The [[The Player Character Group]] trades info with [[Chalmers]] about [[The Outsiders]]s
-- [[Ash]] meets with [[Amy Bluetrail]] and has one of her [[The Bean]]s
+- [[Lady Ito]] and [[Alcott]] visit [[Cosimo]] at [[The Hive]]
+- The [[The Dreamers]] trades info with [[Chalmers]] about [[The Outsiders]]s
+- [[Ash]] meets with [[Amy]] and has one of her [[The Bean]]s
 ## Nov 3-8, night 7-12
 - Long ticks
 	- [[Ash]] teaches fortitude and learns obfuscate
-	- [[Alcott Dracul]] teaches auspex and gather's blood to host [[The Calling]]
+	- [[Alcott]] teaches auspex and gather's blood to host [[The Calling]]
 	- [[Hasan]] teaching obfuscate and learning fortitude
 	- [[Chud]] learning auspex and making [[Bloodshine]]
 	- [[Lady Ito]] makes shovelheads and learns dominate
 ## Nov 9, night 13
-- [[Lady Ito]], [[Chud]], and [[Alcott Dracul]] visit [[Jamie]]
+- [[Lady Ito]], [[Chud]], and [[Alcott]] visit [[Jamie]]
 	- Learned [[Kupala]] is opposed to [[The Outsiders]]s
 	- Learned the names of three [[The Outsiders]]s
 	- Heard the prophecy of the Liar and the Eagle which references [[The Duel]]
-- [[Alcott Dracul]] hosts [[The Calling]] on his new yacht
-	- [[Chud]] speaks with [[Amy Bluetrail]] and learns more about outsiders and sees the wrongness of [[Cosimo]] after a hit of her [[Bloodweed]]
+- [[Alcott]] hosts [[The Calling]] on his new yacht
+	- [[Chud]] speaks with [[Amy]] and learns more about outsiders and sees the wrongness of [[Cosimo]] after a hit of her [[Bloodweed]]
 	- [[Hasan]] gets [[A drop of fairy blood]] from [[Vera]]
 	- [[Otto Giovanni]] makes an appearance at [[The Calling]] and pisses off [[Lady Ito]]
 	- [[Jack]] is discovered to be acting as [[Cosimo]]'s mouthpiece and the calling relocates to [[Times Square]]
 		- [[The General]] challenges [[Jack]] to a duel
-	- [[Lady Ito|Izumi Ito]] describes [[Alcott Dracul]] as her husband publicly
+	- [[Lady Ito|Izumi Ito]] describes [[Alcott]] as her husband publicly
 - [[The Duel]]
 - [[Hasan]] parties with [[Lashtak]] and heals his wounds from [[The God Round]].
 	- [[Lashtak]] offers a boon and [[Hasan]] requests a decrease in generation.
@@ -75,13 +75,13 @@
 	- [[Hasan]] kills [[George Lucas]] and a fight breaks out.
 	- [[Lady Ito|Fukuyoko Ito]] become's [[Joseph Campbell|Darth Campbell]]'s apprentice and [[Hasan]] steals a lightsaber with no crystal.
 ## Nov 10, night 14
-- [[Jamie]] called the [[The Player Character Group]] to his station, and asked them to go investigate [[Glenn]] at [[Vinnie's Upstate Libary]]. 
-- [[The Player Character Group]] spends a few hours getting to the town of [[Carthage]] as it is warded and keeps redirecting people's intent to enter elsewhere.
-- When [[The Player Character Group]] gets there they find [[Glenn]] and some slap fighting over the [[Faerie Glasses]] between [[Hasan]] and [[Ash]] ensued.
+- [[Jamie]] called the [[The Dreamers]] to his station, and asked them to go investigate [[Glenn]] at [[Vinnie's Upstate Libary]]. 
+- [[The Dreamers]] spends a few hours getting to the town of [[Carthage]] as it is warded and keeps redirecting people's intent to enter elsewhere.
+- When [[The Dreamers]] gets there they find [[Glenn]] and some slap fighting over the [[Faerie Glasses]] between [[Hasan]] and [[Ash]] ensued.
 - [[Chud]] gets through the ward over [[Carthage]] and brings the party with him.
 - [[Glenn]] walks into the library, starts messing with the traps on [[Vinnie]]'s prison ([[Vinnie's Upstate Libary]]), and [[Chud]] calls [[EX]] to deal with him.
 - Deals are made and [[EX]] wipes everyone's memories and sends them home.
-	- [[Glenn]] joins [[The Player Character Group]]. 
+	- [[Glenn]] joins [[The Dreamers]]. 
 ## Nov 11, night 15
 - When [[Chud]] awakes [[EX]] is feeding [[Hamburger]] and recruits him (chud) for the demon containment squad dealing with [[Bast]] and his new friend [[Baal]]
 - [[Jamie]] calls and asks [[Lady Ito|Izumi Ito]] meet at [[Roosevelt Island]]
@@ -93,8 +93,8 @@
 	- [[Billy Rubio]] then appears in his haven out of a shadow and asks more insistently
 	- [[Hasan]] privately names [[Billy Rubio]] prince of [[New York|The City]]
 - [[Hasan]], [[Chud]], and [[Glenn]] where they meet and speak to and get swindled by [[Vera]], and [[Fat Pat|Slim Jim]]
-- Just outside the lighthouse [[Roosevelt Island]] [[The Player Character Group]] meets with [[The Prodigy|The Prodigy]] and forms an alliance with them on the basis of [[Hasan]] naming [[Billy Rubio]] prince of [[New York|The City]]
-	- [[The Player Character Group]] is informed [[The Prodigy|The Prodigy]] has formed an alliance with [[Vlad Dracul]] and [[Bast]]. It is revealed [[Bast]] summoned [[Baal]] during the [[The Chantry Heist]] when [[Baal]] appears and joins the conversatrion.
+- Just outside the lighthouse [[Roosevelt Island]] [[The Dreamers]] meets with [[The Prodigy|The Prodigy]] and forms an alliance with them on the basis of [[Hasan]] naming [[Billy Rubio]] prince of [[New York|The City]]
+	- [[The Dreamers]] is informed [[The Prodigy|The Prodigy]] has formed an alliance with [[Vlad Dracul]] and [[Bast]]. It is revealed [[Bast]] summoned [[Baal]] during the [[The Chantry Heist]] when [[Baal]] appears and joins the conversatrion.
 	- [[Vlad Dracul]] has ousted [[Maximillion]] from his haven (the lighthouse) and has him staked above his throne during the meeting
 - After meeting [[Baal]], [[Clan Gangrel|Gangrel]] militants bust in through the windows and start trying to kill [[Hasan]] in revenge for executing [[The General]] during [[The Duel]]. There is a large fight filled with smoke grenades and gunfire.
 	- During the fight, [[Chud]] steals [[Maximillion]]'s body
@@ -104,7 +104,7 @@
 - [[Chud]]
 	1. Training birds to steal
 	2. Paid [[Billy Rubio]] 100 [[Blood Coins]] for the secret of [[The Bean]] so he could finish his [[Bloodshine]]
-	3. Learned auspex from [[Alcott Dracul]]
+	3. Learned auspex from [[Alcott]]
 - [[Ash]]
 	1. Teaching fortitude and celerity
 	2. Recruiting a handful of loyal followers as core circus members
@@ -122,6 +122,33 @@
 	2. Learn Obtenebration from [[Billy Rubio]] and learn fortitude from [[Ash]]
 	3. Teach Celerity
 ## Nov 20, night 24
-now
-
-## Things that we are unsure when they happened
+- [[Ash]] learned of [[Sid]] a world class circus ringleader who is coming to [[New York]] soon
+- [[Lady Ito|Izumi]] gets a map from [[Chalmers]] showing a secret tunnel from [[Ward Island]] to [[New York|Manhattan Island]], somewhere near [[Central Park]]
+- [[Hasan]] checks out [[Fort Hamilton]] and learns of [[General Hamilton]] and a secret level of the fort
+- [[Chud]] gets thief-birds and learns of [[The Pigeon Villain]]
+- [[Glenn]] chooses a haven north of the park at [[Saint Nick and 7th Avenue]]
+## Nov 21, night 25
+- [[The Second Dream]]
+- After the dream, [[Glenn]] goes looking in [[Central Park]] for [[Jacob|Jacob Malone]] and finds him
+- [[The Dreamers]] meet and try to understand [[The Second Dream]]
+	- [[Jacob]] performs a [[Vaulderie]] for [[The Dreamers]] as [[Alcott]] is retired
+	- [[Amy]] cleanses the [[The Outsiders|Outsider]] taint from [[Lady Ito|Izumi's]] blood because [[Chud]] claims her blood is "tentacley"  and wont drink it
+- [[Chud]], [[Hasan]], [[Glenn]] and [[Jacob]] go to [[The Chantry]]
+	- [[Chud]] and [[Hasan]] are denied entry
+	- [[Jacob]] returns a library book [[The Dreamers]] checked out and makes inroads with [[The Chantry]]
+		- He begins learning about magic and prophecies
+	- [[Glenn]] meets with [[Cong Chang|The Dominus]] and tells [[Cong Chang|The Dominus]] who sent him and in exchange he is directed to speak with [[Tony]]
+- [[Chud]] and [[Hasan]] go and visit [[Chalmers]]
+	- They talk and get drunk on [[Chud|Chud's]] [[Bloodshine]]
+	- [[Chud]] gives [[Chalmers]] 100 [[Blood Coins]]
+	- They learn about the legend of [[The Gold Dragon]]
+	- [[Hasan]] learns [[Something]] about how to protect himself from [[The Fae|Faeries]]
+- [[Ash]] visits [[Floren]] to learn about her connection with [[Jack]] and encounter's [[Father Nicolas]] orchestrating a fire dance
+	- [[Floren]] thinks [[Jack]] is important and may even like him but does not trust him
+	- Makes inroads with him with regards to hiring performers
+	- [[Ash]] sees a symbol in the flames, attempts to take a picture of it, and it does not show up in the picture
+- [[Lady Ito|Izumi]] meets with [[Amy]] and they have a cleansing dance around a bonfire at [[The Plant Building]]
+	- [[Lady Ito|Izumi]] is more herself and [[Lady Ito|Fukuyoko]] is banished for a week
+	- one of [[Lady Ito]] might have an addiction to warm, fuzzy, [[Clan Salubri|Salubri]] healing magic
+- [[The Dreamers]] meet back at [[Grand Central Station]], speak with [[Chalmers]], trade information, and pass the the day
+## Nov 22, night 26

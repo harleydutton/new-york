@@ -1,1 +1,7 @@
-[[Cosimo]]'s childer and briefly regent of [[The Chantry]] until she was killed by [[Eddie 'Bones' Bonesaw]]
+---
+aliases:
+  - Franchesca's
+---
+- [[Cosimo|Cosimo's]] childer and briefly regent of [[The Chantry]]
+- killed by [[Eddie 'Bones' Bonesaw]]
+- has an [[The Outsiders|Outsider]] duplicate

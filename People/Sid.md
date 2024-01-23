@@ -1,0 +1,2 @@
+- World class circus ringleader
+- Being recruited by [[Ash]] for his circus

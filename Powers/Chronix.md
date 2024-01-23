@@ -1,3 +1,0 @@
-- time manipulation magic
-- created by [[Vinnie]]
-- knows or can know chronix: [[Chud]], [[Jamie]], [[Dr. Cantor]], [[Amy Bluetrail]], [[Jack]]

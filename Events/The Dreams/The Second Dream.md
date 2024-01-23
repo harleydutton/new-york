@@ -1,0 +1,11 @@
+Begins in [[Central Park|The Park]]. An enormous gold dragon erupts from the ground, destroying the park and much of the city to fight [[The Outsiders|Outsider]] tentacles that are reaching down from the sky during an eclipse. Lucid dream where inhabitants could communicate with each other. Attendees:
+- [[Jamie]] and [[Kupala]]
+- [[Jacob]]
+- [[Chud]]
+- [[Jack]]
+- [[Amy]]
+- [[Hasan]]
+- [[Ash]]
+- [[Lady Ito|Izumi]]
+- [[Glenn]]
+- [[Dr. Cantor]]

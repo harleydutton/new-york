@@ -1,3 +1,5 @@
-Cuban MMA fighter
-[[Clan Lasombra]]
-Member of [[The Prodigy]]
+- Cuban drug lord
+- MMA fighter
+- [[Clan Lasombra]]
+- Member of [[The Prodigy]]
+- can use shadows to scry and teleport

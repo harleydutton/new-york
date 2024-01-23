@@ -1,3 +1,9 @@
+---
+aliases:
+  - Amy Bluetrail
+  - Amy's
+---
+
 Ate [[Joshua]] to become a wizard [[The Seven]]
 Lives in [[The Plant Building]]
 Member of [[The New Gods]]

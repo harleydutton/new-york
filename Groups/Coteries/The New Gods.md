@@ -1,4 +1,4 @@
-- [[Amy Bluetrail]]
+- [[Amy]]
 - [[Christopher 'Thorne' Leighton]]
 - [[Dr. Cantor]]
 - [[Eddie 'Bones' Bonesaw]]

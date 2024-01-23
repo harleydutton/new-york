@@ -1,1 +1,1 @@
-- Haven of [[Alcott Dracul]] and possibly [[Vlad Dracul]]
+- Haven of [[Alcott]] and possibly [[Vlad Dracul]]

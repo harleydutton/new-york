@@ -11,5 +11,5 @@
 - Neighbor's implicating [[Chalmers]]
 - Lilith and the Mantle of Blood
 - The Outsiders
-- Why were the [[The Seven]] and [[The Cadre]] fighting in [[The Dream]]?
+- Why were the [[The Seven]] and [[The Cadre]] fighting in [[The First Dream]]?
 - What are [[EX]]'s motivations?

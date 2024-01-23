@@ -5,7 +5,7 @@ aliases:
 The seven founding members of clan [[Clan Tremere]]
 - [[Vinnie]]
 - [[Bast]]
-- [[Cong 'The Dominus' Chang]]
+- [[Cong Chang]]
 - [[Deocar]]
 - [[Saladeem]]
 - [[Joshua]]
