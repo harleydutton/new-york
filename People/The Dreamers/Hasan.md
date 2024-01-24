@@ -2,6 +2,7 @@
 aliases:
   - Hasan Ibn Haqim
   - Sherif Hasan
+  - Hasan's
 ---
 - Member of the [[Assamite Blood Bank]]
 - [[Clan Assamite]]

@@ -1,0 +1,7 @@
+- The birds [[Chud]] called, [[Ghoul|Ghouled]], and used to steal [[Jack|Jack's]] hoard of [[Blood Coins]] the night of [[The Duel]]
+- About 800 of them
+- Mostly endangered species from the bird sanctuary on [[Mill Rocks]]
+- additions
+	- Lead by [[Drumstick]]
+	- A handful of [[Ghoul|Ghouled]] pigeons
+	- A handful of thief-birds (seagulls and magpies)

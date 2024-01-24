@@ -1,0 +1,8 @@
+- power fist looking thing with a cup in the hand for making [[Bloodshine]]
+- specially made by [[Dr. Cantor]] for [[Chud]]
+- [[The Outsiders|Outsider]] blood was used in it's creation
+- recipe
+	- 3 oz fermented, ghouled corn juice
+	- 1 point of aggravated damage
+	- x blood
+	- makes one shot of [[Bloodshine]]

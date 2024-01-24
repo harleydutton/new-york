@@ -1,0 +1,12 @@
+---
+aliases:
+  - Blood Bullet
+  - Blood Claws
+  - Blood Stones
+  - Blood Bullets
+---
+- made by [[The Outsiders|Outsider]] [[Nicolai Kadnikov]] via a ritual
+- successfully replicated by [[Dr. Cantor]] according to [[Chalmers]]
+- when in contact with [[Vitae]] will grow to consume that vitae. Can effectively turn a vampire to stone from the inside
+- can be crafted and replicated by [[Ajani Farro]]
+- easy to duplicate, hard to shape

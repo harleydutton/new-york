@@ -1,0 +1,2 @@
+- Seen in the sky by [[Ash]] during [[Father Nicolas]]
+- Breathed into the sky by [[The Gold Dragon]]

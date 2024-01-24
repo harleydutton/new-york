@@ -2,38 +2,38 @@
 aliases:
   - Chud's
 ---
-
-Horribly scarred [[Clan Nosferatu]] hillbilly, redneck, hick from Louisiana
-Friendly with [[Chalmers]]
-
-- Enjoys pissing off powerful people he deems too uptight
+- [[Clan Nosferatu]]
+- Horribly scarred, tall and thin, wears a straw hat, overalls, and cowboy boots
+- Likes animals more than people and typically has at least one ghouled animal with him
+- Enjoys annoying people
+- Has sticky fingers, a temper, and amnesia
 - Ghouled Animals
 	- [[Bubba]]
 	- [[Hamburger]]
 	- [[Drumstick]]
 	- [[Mr. Pickle]]
 	- [[Jerry]]
-	- Some of [[Henrietta]]'s kits
-	- 800 endangered birds from [[Mill Rocks]]
-	- 50 goats from the goat-heist [[100 goats]]
+	- [[The Flock]]
+	- 50 goats from [[100 goats|The Goat Heist]]
 - Items
 	- [[Chud's Truck|Semi Truck]]
-	- Welding equipment
-	- 1621ish [[Blood Coins]] in various stashes
-		- gave 1 coin to [[Jamie]]
-		- hid 2 coins in [[Lady Ito]]'s haven
-		- bought information from [[Chalmers]] for 1 coin
-		- hid 2 coins in [[Hell Gate]]
+	- Under-water welding equipment
+	- 8 [[Blood Stone|Blood Bullets]]
+	- [[Faerie Glasses]] (possibly lost after giving them to [[Lady Ito|Izumi]] on [[Ward Island]])
+	- The second red crate
+	- SAW LMG with phosphorous rounds (possibly lost on [[Ward Island]])
+	- The [[Shinefist]]
+	- 2421 [[Blood Coins]] in various stashes
+		- 800 consumed by [[The Flock]]	
+		- hid 102 coins hidden in [[Lady Ito]]'s haven unknown to her
+		- gave 101 to [[Chalmers]]
 		- stashed 100 coins on [[Alcott's Yacht]]
 		- gave 100 coins to [[EX]] for safekeeping
-		- buried 100 coins in the woods
-		- buried 100 coins at the bottom of [[Hell Gate]] river
+		- buried 100 coins in the woods outside the city
 		- buried 100 coins on [[Mill Rocks]]
-		- hid 100 coins in [[Lady Ito]]'s haven
-		- hid 100 coins in [[Hell Gate]]
-		- hid 500 coins in [[Chud's Truck|his Truck]]
-		- gave 100 to [[Hasan]] to bank with the [[Assamite Blood Bank]]; [[Hasan]] skimmed 1
-		- planning on banking 100 with to [[Otto Giovanni]]
-		- planning on investing 100 in [[Ash|Ash o' Lyn]]'s circus
-		- planning on loaning 100 to [[Chalmers]]
-		- keeps 15 coins on his person
+		- gave 99 to [[Hasan]] to bank with the [[Assamite Blood Bank]]
+		- planning on banking 100 with to [[Otto Giovanni]] through [[Ash]]
+		- gave 1 coin to [[Jamie]]
+		- gave 1 coin to [[Hasan]]
+		- Consumed 0 blood coins
+		- the rest are hidden in [[Chud's Truck]] and around [[Hell Gate]]

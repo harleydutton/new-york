@@ -1,4 +1,4 @@
-Begins in [[Central Park|The Park]]. An enormous gold dragon erupts from the ground, destroying the park and much of the city to fight [[The Outsiders|Outsider]] tentacles that are reaching down from the sky during an eclipse. Lucid dream where inhabitants could communicate with each other. Attendees:
+Begins in [[Central Park|The Park]] with an eclipse and [[The Outsiders|Outsider]] tentacles reaching down from the sky. An enormous gold dragon erupts from the ground, destroying the park and breathing golden fire into the sky in the shape of the [[Dragonsign]]. Much of the city is destroyed as [[The Gold Dragon]] fights the tentacles. Lucid dream where inhabitants could communicate with each other. Attendees:
 - [[Jamie]] and [[Kupala]]
 - [[Jacob]]
 - [[Chud]]

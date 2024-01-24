@@ -1,6 +1,7 @@
 ---
 aliases:
   - Jack Vallens
+  - Jack's
 ---
 [[Clan Ravnos]]
 Spends most of his time on [[Rikers Island]] by report--possibly scared out there by [[The General]]

@@ -87,7 +87,7 @@
 - [[Jamie]] calls and asks [[Lady Ito|Izumi Ito]] meet at [[Roosevelt Island]]
 - [[Ash]] is asked to go to [[Roosevelt Island]] by [[Father Nicolas]]'s dancers
 	- [[Ash]] then visits [[EX]] at [[Bass Reality]] and makes a deal with him to spy on [[Bast]]
-- [[Lady Ito|Izumi Ito]] goes to visit [[Nino]] and asks about the [[Blood Bullet]] she got from [[Joseph Campbell|Darth Campbell]]
+- [[Lady Ito|Izumi Ito]] goes to visit [[Nino]] and asks about the [[Blood Stone]] she got from [[Joseph Campbell|Darth Campbell]]
 	- [[Nino]] tells her to speak with [[Chalmers]] who tells her what it is, to stop touching it, that [[Dr. Cantor]] replicated one, and that [[EX]] keeps
 - [[Hasan]] is contacted by [[Billy Rubio]] who asks him to go to the meeting at [[Roosevelt Island]] but he refuses
 	- [[Billy Rubio]] then appears in his haven out of a shadow and asks more insistently
@@ -110,7 +110,7 @@
 	2. Recruiting a handful of loyal followers as core circus members
 	3. Learning necromancy from [[Otto Giovanni]]
 - [[Lady Ito|Izumi Ito]]
-	1. Commissioning claws be made from the [[Blood Bullet|Blood Stone]] she got from [[Joseph Campbell|Darth Campbell]]
+	1. Commissioning [[Blood Stone|Blood Claws]] be made from the [[Blood Stone]] she got from [[Joseph Campbell|Darth Campbell]]
 	2. Recruiting for the takeover of [[Ward Island]]
 	3. Learning fortitude from [[Ash]]
 - [[Glenn]]
@@ -137,12 +137,12 @@
 	- [[Chud]] and [[Hasan]] are denied entry
 	- [[Jacob]] returns a library book [[The Dreamers]] checked out and makes inroads with [[The Chantry]]
 		- He begins learning about magic and prophecies
-	- [[Glenn]] meets with [[Cong Chang|The Dominus]] and tells [[Cong Chang|The Dominus]] who sent him and in exchange he is directed to speak with [[Tony]]
+	- [[Cong Chang|The Dominus]] requests a meeting with [[Glenn]]
 - [[Chud]] and [[Hasan]] go and visit [[Chalmers]]
 	- They talk and get drunk on [[Chud|Chud's]] [[Bloodshine]]
 	- [[Chud]] gives [[Chalmers]] 100 [[Blood Coins]]
 	- They learn about the legend of [[The Gold Dragon]]
-	- [[Hasan]] learns [[Something]] about how to protect himself from [[The Fae|Faeries]]
+	- at [[Hasan|Hasan's]] behest, [[Chalmers]] tells him if he would like to stay safe from [[The Fae]] he should avoid them, and tells him [[Rasitlin]] might be able to help
 - [[Ash]] visits [[Floren]] to learn about her connection with [[Jack]] and encounter's [[Father Nicolas]] orchestrating a fire dance
 	- [[Floren]] thinks [[Jack]] is important and may even like him but does not trust him
 	- Makes inroads with him with regards to hiring performers
@@ -152,3 +152,27 @@
 	- one of [[Lady Ito]] might have an addiction to warm, fuzzy, [[Clan Salubri|Salubri]] healing magic
 - [[The Dreamers]] meet back at [[Grand Central Station]], speak with [[Chalmers]], trade information, and pass the the day
 ## Nov 22, night 26
+
+- [[Lady Ito|Izumi]] calls a meeting of [[The Dreamers]] and grants each of them a boon in exchange for help assaulting [[Ward Island]] and wresting it away from [[Joseph Campbell|Darth Campbell]]
+	- [[Jacob]] asks for a pony
+	- [[The Dreamers]] agree to help her take over [[Ward Island]]
+- [[Chud]] meets with [[Dr. Cantor]] and picks up the [[Shinefist]]
+- [[Lady Ito|Izumi]], [[Hasan]], and [[Chud]] meet with [[Ajani Farro]] and get new [[Blood Stone]] toys
+	- [[Chud]] gives [[Ajani Farro]] the first shot of his [[Bloodshine]]
+- [[Jacob]] spends time learning magic from [[Edren's Primer]]
+- [[Hasan]] meets with [[Lashtak]] to get new weapons and learn if it possible to share a [[Diablerie]]
+	- accidentally reveals that he has been getting [[Blood Coins]] from [[Chud]]
+- [[Glenn]] meets with [[Cong Chang|The Dominus]] and tells [[Cong Chang|The Dominus]] who sent him to [[New York|The City]] and in exchange he is directed to speak with [[Tony]]
+- [[Glenn]] plays cards with [[Tony]], [[Krista]], [[Liliana]], and [[Frank Leone]] and learns about:
+	- [[The Treaty]]
+	- [[White Buffalo Calf Maiden]]
+	- [[El Dorado]]
+	- [[Lakota Soux]]
+## Nov 23, night 27
+- [[The Third Dream]]
+- [[Ash]] learns something about the [[White Buffalo Calf Maiden]] from [[Jim]]
+- [[Hasan]] and billy kick in the door to [[Ward Island]] and throw a bloody surprise party for [[Lady Ito|Izumi]]
+- [[The Dreamers]] continue pressing into [[Ward Island]] and find themselves trapped in a maze with no exit
+	- [[Lady Ito|Izumi]] realizes in order to escape you will have to be crazy, so she asks [[Chud]] for the [[Faerie Glasses]] and makes each member of [[The Dreamers]] a little crazy so they an pass through a wall
+- [[The Dreamers]] escape the maze and enter [[Joseph Campbell|Campbell's]] throne room, where he, [[Rey Palpatine]], and 15 Stormtroopers were waiting
+	- After a bit of a fight, [[Jacob]] kills [[Joseph Campbell|Darth Campbell]] and [[Rey Palpatine|Rey]] swears vengeance and teleports away

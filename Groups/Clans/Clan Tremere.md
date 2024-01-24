@@ -1,3 +1,7 @@
+---
+aliases:
+  - Tremere
+---
 - [[Cosimo]]
 - [[Vinnie]]
 - [[Dr. Cantor]]

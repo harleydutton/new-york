@@ -1,0 +1,3 @@
+- A ceasefire treaty between the vampires and werewolves of [[New York|NY]] borkered by [[The Fae]]
+	- Neither party was to have the land they were fighting over
+	- possibly jeopardized by the strong vampiric presence in [[New York|The City]]

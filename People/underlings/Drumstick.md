@@ -1,1 +1,2 @@
-Vulture
+- [[Chud|Chud's]] ghouled vulture
+- Leader of [[The Flock]]

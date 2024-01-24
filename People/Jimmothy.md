@@ -1,0 +1,4 @@
+- Goat
+- Obtained during [[100 goats|The Goat Heist]]
+- [[Lady Ito|Izumi's]]
+- Diamond collar
