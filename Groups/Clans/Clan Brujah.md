@@ -1,3 +1,7 @@
+---
+aliases:
+  - Brujah
+---
 - [[Frank Leone]]
 - [[Frank Wayne]]
 - [[Krista]]

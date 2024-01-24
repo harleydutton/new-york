@@ -6,7 +6,7 @@
 ## Oct 28, night 1
 - The [[The Dreamers]] arrives in [[New York]]
 	- [[Chud]] meets with [[Chalmers]]
-	- [[Alcott]] is scorned at [[The Brujah]]
+	- [[Alcott]] is scorned at [[Clan Brujah|Brujah]] Elysium
 	- [[Ash]] puts on a circus in the park and meets with [[Christopher 'Thorne' Leighton]]
 	- [[Hasan]] checked in at the [[Assamite Blood Bank]]
 ## Oct 29, night 2
@@ -37,7 +37,7 @@
 - [[Lady Ito]] and [[Alcott]] visit [[Cosimo]] at [[The Hive]]
 - The [[The Dreamers]] trades info with [[Chalmers]] about [[The Outsiders]]s
 - [[Ash]] meets with [[Amy]] and has one of her [[The Bean]]s
-## Nov 3-8, night 7-12
+## Downtime Nov 3-8, nights 7-12
 - Long ticks
 	- [[Ash]] teaches fortitude and learns obfuscate
 	- [[Alcott]] teaches auspex and gather's blood to host [[The Calling]]
