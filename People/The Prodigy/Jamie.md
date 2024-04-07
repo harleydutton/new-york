@@ -2,6 +2,7 @@
 aliases:
   - The Oracle
   - Jamie Valiant
+  - '"Kupala"'
 ---
 - [[Clan Malkavian]]
 - member of [[The Prodigy]]

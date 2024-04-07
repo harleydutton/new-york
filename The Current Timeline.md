@@ -206,3 +206,40 @@
 - [[Ash]] is visited by [[Sid]] and [[Father Nicolas|Father Nic]] and learned of the troupes of "The Dark Lady", "Santanico Pandemonium", "The Clowns", and Father Nic's troupe
 - [[Chud]] calls [[Oleus]] and learns about [[The Ledger]] and continues setting up the brewery
 - [[Glenn]] went to [[Krista's Elysium]], danced with [[Krista]], and raised his standing with her and the [[Clan Brujah|Brujah]]
+- [[Belladonna]] meets with [[Bast]], puts out a not-star, her hair becomes a source of darkness, and she is told to meet the dreamers
+- [[Chud]] and [[Ash]] team up to track down [[Belladonna]] after [[The Dreamers]] flee [[The Chantry]]. They find her at [[The Edge]]
+- [[Hasan]] visits [[The Dark Bazaar]] and is mentally scarred. He tries to blow up [[The Vessel]] and fails because it doesn't fully exist in this reality
+- [[Ash]] speaks with [[Jezebel]] at her shop about costumes in preparation for [[Freaks United]]
+## Dec 2, night 36
+- [[Glenn]] and then [[Jacob]] visit [[Vera]] about knowing her name
+	- [[Jacob]] agrees to give up his memories of her name
+- A meeting of [[The Dreamers]] is called on [[Alcott's Yacht]]
+	- [[Hasan]] tells [[Chud]] [[Vera|Vera's]] true name
+	- A [[Bloodweed]] blunt is passed around
+	- [[The Dreamers]] feel bad for knowing [[Vera|Vera's]] true name and internally agree not to share it around
+	- [[Chud]] and [[Belladonna]] go to ask [[EX]] about [[Lillith]], [[The Outsiders]], [[The Mantle]], and [[The Creator]]. [[Bast]] wanted [[Vera|Vera's]] true name for the information but [[Chud]] refused
+- [[Glenn]] and [[Hasan]] have another tense conversation with [[Vera]] (who knows they know her true name)
+	- [[Glenn]] swears an oath her name will never willingly pass his lips
+	- [[Vera]] gives him a cane sword with his killer's name inscribed upon the blade
+- [[Jacob]] has a conversation with [[Cong Chang|The Dominus]] about [[The Tabula Rasa]]
+## Dec 3, night 37
+- [[The Dreamers]] scout and assault [[Fort Hamilton]]
+	- They encounter stiff resistance in the form of united states military hardware including Humvees, Strikers, mortars, an A10 Warthog, and 3 tanks
+	- A large contingent of [[The Red Heels|Red Heels]] led by [[Krista]] in [[Liliana|Liliana's]] body arrives close behind to take up the fight. [[The Dreamers]] retreat
+		- [[Krista]] makes [[Hasan]] love her temporarily
+		- [[Chud]] is about to be hit with some large munitions and calls upon [[EX]] who admonishes him for stirring up trouble by assaulting the [[Clan Gangrel|Gangrel]] but relents when he learns [[Chud]] refused to give [[Bast]] [[Vera|Vera's]] true name
+- On the boat ride back to [[New York|Manhattan Island]] [[Chud]] is captured by [[Big John]] and wakes up welded to a wall in a mine. They speak at length [[Chud|Chud's]] past life
+	- [[Chud|Chud's]] real name is "Luke"
+	- [[Chud|Luke]] sire is [[Annabelle]]
+	- [[Chud|Luke]] betrayed [[Big John|John]] and trapped him in a mine to make himself the only option for [[Annabelle]]
+	- [[Big John|John]] implies [[Annabelle]] betrayed [[Chud|Luke]] twice in parallel to how [[Chud|Luke]] betrayed [[Big John|John]] twice
+	- [[Big John|John]] claims to have sired himself using one of [[Annabelle|Annabelle's]] childer
+	- [[Big John|John]] claims to be able to be a [[Clan Nosferatu]] bloodline that can temporarily or permanently remove the clan curse
+- [[Big John]] leaves and collapses the mine on [[Chud]], trapping him inside
+- [[Hasan]] goes to see [[Billy Rubio|Billy]] and tells him about the assault on [[Fort Hamilton]]. [[Billy Rubio|Prince Rubio]] declares the feude settled and tells [[Hasan]] he doesn't really love [[Sherry the Cherry|"Krista"]], [[Krista]] is dead, and she's possessing [[Sherry the Cherry]]
+- [[Chud]] breaks free of his bonds and gets calls upon the local fauna to help him escape the mine [[Big John]] trapped him in
+	- He learns of a third, secret passage the critters call [[The Furnace]], a place they will not tread
+	- He spends much of his blood to escape the mine
+	- In the process he sees [[The Gold Dragon|Gold Dragon]] scales in [[The Furnace]]
+	- Beyond [[The Furnace]] [[Chud]] finds [[The Rune Well]] before escaping into the sewers on the southern tip of [[New York|Manhattan Island]]
+- [[Mr. Pickle]] is still MIA when [[Chud]] returns to [[Hell Gate]]

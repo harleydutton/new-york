@@ -1,3 +1,8 @@
+---
+aliases:
+  - Billy
+  - Prince Rubio
+---
 - Cuban drug lord
 - MMA fighter
 - [[Clan Lasombra]]
