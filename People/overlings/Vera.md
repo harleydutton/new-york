@@ -1,3 +1,7 @@
+---
+aliases:
+  - Vera's
+---
 Giant seeming woman
 made the faerie glasses
 lady of the stars

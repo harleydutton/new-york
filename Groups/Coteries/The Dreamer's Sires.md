@@ -1,0 +1,6 @@
+- The sires of [[The Dreamers]] were a coterie
+	- [[Floren]] or someone else because Floren is a Ravnos and Ash is a Gangrel?
+	- [[Oleus]] or potentially [[Annabelle]]
+	- [[Jamie|Jamie Valiant]]
+	- [[Anatoli Dracul]]
+	- [[Ayesha]]

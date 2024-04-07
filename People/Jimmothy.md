@@ -2,3 +2,4 @@
 - Obtained during [[100 goats|The Goat Heist]]
 - [[Lady Ito|Izumi's]]
 - Diamond collar
+- In a petting zoo run by [[Vincent]]

@@ -1,5 +1,5 @@
 ## Oct 25, three nights prior
- - The [[The Dreamers]] is awakened in [[Louisiana]]
+ - The [[The Dreamers]] is awakened in California
  - Evil meeting with sires and [[Ella]]
 	 - [[The Dreamers]] is sent to NY to investigate [[The Peace]]
  - [[Chud]] drives the party to [[New York]] over the next three nights
@@ -176,3 +176,33 @@
 	- [[Lady Ito|Izumi]] realizes in order to escape you will have to be crazy, so she asks [[Chud]] for the [[Faerie Glasses]] and makes each member of [[The Dreamers]] a little crazy so they an pass through a wall
 - [[The Dreamers]] escape the maze and enter [[Joseph Campbell|Campbell's]] throne room, where he, [[Rey Palpatine]], and 15 Stormtroopers were waiting
 	- After a bit of a fight, [[Jacob]] kills [[Joseph Campbell|Darth Campbell]] and [[Rey Palpatine|Rey]] swears vengeance and teleports away
+## Nov 24-30, night 28-34
+
+- [[Chud]]
+	- Annoy [[Lady Ito|Izumi]] by posing as [[Lady Ito|Fukuyoko]] on [[The Ward]]
+	- Re-hid the [[Blood Coins]] he had stolen from [[Jack]]
+	- Set up a [[Bloodshine]] brewery on [[The Ward]]
+- [[Hasan]]
+	- Create a herd
+	- Find [[Rasitlin]]
+	- Talk to [[Billy Rubio]] about learning Obtenebration
+- [[Jacob]]
+	- Learn a week's worth of rituals
+	- Practice magic to learn about the occult and strengthen will
+	- Set up a tinder account and trade [[Chud]] a pony for a raven
+- [[Lady Ito|Izumi]]
+	- Turning a substantial portion of [[The Ward]] into vampires and ghouls
+	- Legally buying [[The Ward]] with the help of [[The Thorn]]
+- [[Ash]]
+	- Prepping for [[Freaks United]] with [[Sid]], [[Floren]], [[Father Nicolas|Father Nic]], [[Chud|"Fukuyoko"]], [[Chalmers]], and [[The Dreamers]]
+- [[The Fourth Dream]] happens at some point during the week
+## Dec 1, night 35
+- [[Chud]] and [[Hasan]] meet with [[Lashtak]] and learn about [[Belladonna]], an individual who is capable of leading a ritual for shared diablerie
+- [[The Dreamers]] go to [[The Chantry]]
+	- They steal files on [[Vera]], [[Lashtak]], [[Ethan Pliskin]], and a copy of [[The Treaty]]
+	- Found [[Belladonna]] in torpor in a cell, got creeped out, blood bonded her, and woke her up
+	- [[Jacob]] acquired a blank book for [[Wally]] and used the blank card to summon [[Deocar]] who kicked him out and told him to see [[Cong Chang|The Dominus]] after class 
+	- Got chased out of [[The Chantry]] by [[Edren]]
+- [[Ash]] is visited by [[Sid]] and [[Father Nicolas|Father Nic]] and learned of the troupes of "The Dark Lady", "Santanico Pandemonium", "The Clowns", and Father Nic's troupe
+- [[Chud]] calls [[Oleus]] and learns about [[The Ledger]] and continues setting up the brewery
+- [[Glenn]] went to [[Krista's Elysium]], danced with [[Krista]], and raised his standing with her and the [[Clan Brujah|Brujah]]

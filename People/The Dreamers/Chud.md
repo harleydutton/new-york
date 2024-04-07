@@ -1,12 +1,16 @@
 ---
 aliases:
   - Chud's
+  - '"Fukuyoko"'
+  - Luke
 ---
 - [[Clan Nosferatu]]
 - Horribly scarred, tall and thin, wears a straw hat, overalls, and cowboy boots
 - Likes animals more than people and typically has at least one ghouled animal with him
 - Enjoys annoying people
+- From Louisiana
 - Has sticky fingers, a temper, and amnesia
+- At one point [[Lady Ito|Izumi]] made him very crazy and he spent a week pretending to be her sister, [[Lady Ito|Fukuyoko]]
 - Ghouled Animals
 	- [[Bubba]]
 	- [[Hamburger]]

@@ -5,4 +5,5 @@
 	- [[Alcott]]
 	- [[Lady Ito|Izumi]]
 	- [[Glenn]]
+	- [[Belladonna]]
 - Experienced [[The Dreams]] along with a couple other characters
