@@ -1,0 +1,4 @@
+- African grey parrot
+- a parrot of uncommon sense
+- only speaks in aSoIaF quotes
+- given to [[Hasan]] by [[Chud]] to reduce PR incidents

@@ -1,0 +1,2 @@
+- blade inscribed with the name of [[Glenn|Glenn's]] killer
+- gifted to [[Glenn]] by [[Vera]]

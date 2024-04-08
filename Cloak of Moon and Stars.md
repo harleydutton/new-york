@@ -1,0 +1,7 @@
+- the devil's own cloak
+- worn by [[Bast]] for a time
+- burnt on one side and embroidered with stars and moons on the other
+- grants the wearer either complete immunity from flames or true invisibility against the night's sky
+- the cloak itself is only visible to others if the wearer wishes it
+- sentient
+- currently possessed by [[Jacob]]

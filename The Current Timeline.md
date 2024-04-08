@@ -220,7 +220,7 @@
 	- [[Chud]] and [[Belladonna]] go to ask [[EX]] about [[Lillith]], [[The Outsiders]], [[The Mantle]], and [[The Creator]]. [[Bast]] wanted [[Vera|Vera's]] true name for the information but [[Chud]] refused
 - [[Glenn]] and [[Hasan]] have another tense conversation with [[Vera]] (who knows they know her true name)
 	- [[Glenn]] swears an oath her name will never willingly pass his lips
-	- [[Vera]] gives him a cane sword with his killer's name inscribed upon the blade
+	- [[Vera]] gives him [[The Phoenecian Sword]] with his killer's name inscribed upon the blade
 - [[Jacob]] has a conversation with [[Cong Chang|The Dominus]] about [[The Tabula Rasa]]
 ## Dec 3, night 37
 - [[The Dreamers]] scout and assault [[Fort Hamilton]]
@@ -236,6 +236,7 @@
 	- [[Big John|John]] claims to have sired himself using one of [[Annabelle|Annabelle's]] childer
 	- [[Big John|John]] claims to be able to be a [[Clan Nosferatu]] bloodline that can temporarily or permanently remove the clan curse
 - [[Big John]] leaves and collapses the mine on [[Chud]], trapping him inside
+- [[Glenn]] asks [[Cong Chang|The Dominus]] for information about [[The Phoenecian Sword]] and is directed to [[Saladeem]]
 - [[Hasan]] goes to see [[Billy Rubio|Billy]] and tells him about the assault on [[Fort Hamilton]]. [[Billy Rubio|Prince Rubio]] declares the feude settled and tells [[Hasan]] he doesn't really love [[Sherry the Cherry|"Krista"]], [[Krista]] is dead, and she's possessing [[Sherry the Cherry]]
 - [[Chud]] breaks free of his bonds and gets calls upon the local fauna to help him escape the mine [[Big John]] trapped him in
 	- He learns of a third, secret passage the critters call [[The Furnace]], a place they will not tread
@@ -243,3 +244,41 @@
 	- In the process he sees [[The Gold Dragon|Gold Dragon]] scales in [[The Furnace]]
 	- Beyond [[The Furnace]] [[Chud]] finds [[The Rune Well]] before escaping into the sewers on the southern tip of [[New York|Manhattan Island]]
 - [[Mr. Pickle]] is still MIA when [[Chud]] returns to [[Hell Gate]]
+- [[Glenn]] goes to visit [[Saladeem]] and at his urging tests out the [[Flesh Flute]] while [[Saladeem]] translates the inscription on the [[The Phoenecian Sword]]
+- [[Glenn]] returns home and continues preparing to receive [[Lakota Soux]] were visitors
+- [[Ash]] stalks [[Jacob]] to [[The Hive]] and tries to protect him from [[Franchesca|Franchesca's]] social traps as a mime
+	- Unfortunately the mischievous mime sat upon [[Cosimo|The Blood Throne]] and was infected with [[The Outsiders|Outsider]] blood
+	- [[Ash]] went home and called [[Amy]] about it
+- [[Hasan]] noticed [[Chud]] disappearing and contacted [[Billy Rubio|Billy]] about it who checked [[Chud|Chud's]] last known location based upon his own spy network
+- While walking home from the docks after the assault on [[Fort Hamilton]], [[Belladonna]] wound up walking through a live, national news broadcast
+	- The next day there are stirrings from the [[Vatican]]
+	- [[Ash]] has plans to play it off as an advertising scheme for [[Freaks United]]
+## Dec 4, night 38
+- [[Chud]] and [[Glenn]] go to meet [[Chalmers]]
+	- [[Chud]] confirms what [[Big John]] told him about his past self [[Chud|Luke]]
+	- [[Chud]] learns a great deal about the ledger
+	- One [[Kristabell]] appears to have been one of [[Annabelle|Annabelle's]] childer and a contact of [[Big John]] though [[Big John]] does not have an entry in [[The Ledger]]
+- [[Belladonna]] wakes, feeds from [[Mommy Dearest]] and heads to [[Hell Gate]]
+	- [[Hasan]] and [[Billy Rubio|Billy]] meet her there and explain about digital cameras, the news, and the dangers of modern telivision
+	- [[Billy Rubio|Billy]] also informs the group three hunters ([[Matthew]], [[Mark]], and [[Luke]]) have been sent from the [[Vatican]]
+- [[Glenn]] goes to the [[The Chantry]] but notices he is being tailed on the way there
+	- he loses them, tails them for a bit, and figures they are going to [[Hell Gate]]
+	- [[Glenn]] tells [[Chud]] about the issue and speaks with [[Cong Chang|The Dominus]] about [[The Phoenecian Sword]]
+- [[Chud]] does a little reconnaissance and alerts [[The Dreamers]] about the werewolves scouting [[Hell Gate]]
+- [[Glenn]] tries to make contact with the werewolves, one of whom is an omega, and they shift, killing all mortal onlookers before they begin hunting [[Chud]]
+- [[Belladonna]], [[Hasan]], and [[Jack]] begin harrying the werewolves to give [[Chud]] time to escape
+- [[Chud]] flees on [[Necromancer]] and makes it to the bridge connecting [[The Ward]] to [[New York|Manhattan Island]] which [[Jack]] blows up to end the pursuit
+- [[Chud]], [[Belladonna]], [[Ash]], [[Hasan]], and with a little prodding from [[Amy]] and [[Bast]], [[Glenn]] and [[Jacob]] all head to [[Belladonna|Belladonna's]] crypt for a little [[Teaparty]]
+- [[Jacob]] and [[Glenn]] refuse drinks at the [[Teaparty]]
+	- [[Bast]] gifts [[Jacob]] with his own [[Cloak of Moon and Stars]]
+	- [[Bast]] gifts [[Glenn]] with a new inner demon of fire
+- Most of [[The Dreamers]] sleeps over at [[Belladonna|Belladonna's]] crypt while [[Glenn]] sleeps at [[The Vessel]]
+## Dec 5, night 39
+- [[Hasan]] gets a call from [[Billy Rubio|Prince Rubio]] telling him that [[Matthew]] the [[Vatican]] hunter is looking for one "[[Chud|Luke]]" and that, as sheriff, this is his mess to clean up
+- [[Amy]] visits [[Hell Gate]] and informs [[The Dreamers]] about the dangers of [[Vatican]] hunters like [[Matthew]]
+- [[Ash]] leads [[The Dreamers]] to [[Saint Patrick's Cathedral]] to learn more about [[The Apostles]]
+	- There are throngs of the devout surrounding the cathedral
+	- He meets [[Matthew]] on the street and is almost compelled to confess his sins as [[Matthew]] preaches
+	- [[Ash]] slaps [[Matthew]] and begins to walk away
+	- [[Matthew]] turns the crowds of the devout to salt in a storm of divine lightning and walks back inside
+- Before he makes it back inside [[Hasan]] shoots [[Matthew]] with a poison dart, but a halo flashes upon [[Matthew|Matthew's]] brow and [[Hasan]] is poisoned

@@ -1,6 +1,7 @@
 ---
 aliases:
   - Glenn Rider Brackett
+  - Glenn's
 ---
 - Kindred of the East
 - Stretchy, hard to move, invisible
