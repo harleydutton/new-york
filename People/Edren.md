@@ -1,0 +1,3 @@
+- An elder of [[Clan Tremere]]
+- Guards [[The Chantry]]
+- Wrote [[Edren's Primer]]

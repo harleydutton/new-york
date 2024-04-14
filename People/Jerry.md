@@ -1,2 +1,0 @@
-- rat that hid in [[Jack's Submarine|Jack's Boat]] eating his [[Blood Coins]]
-- adopted by [[Chud]] when he stole the [[Blood Coins]]

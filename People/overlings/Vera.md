@@ -1,9 +1,13 @@
 ---
 aliases:
   - Vera's
+  - Felurian
 ---
-Giant seeming woman
-made the faerie glasses
-lady of the stars
-black and starlight themed
-actual fey
+- Giant seeming woman
+- Made the faerie glasses
+- Lady of the stars
+- Black and starlight themed
+- An actual fey
+- True name is "Felurian"
+- Cares about [[The Rune Well]] to some degree
+- Commands some werewolves

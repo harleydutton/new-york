@@ -1,0 +1,3 @@
+- Located in [[The Edge]]
+- [[Clan Baali]] establishment
+- A place where you can go to trade your soul or things like it

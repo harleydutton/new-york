@@ -1,0 +1,3 @@
+- A place deep underground
+- Extremely hot such that objects that touch the walls, ceiling and floor burst into flames
+- A patch of [[The Gold Dragon|Gold Dragon]] scales can be seen on the floor

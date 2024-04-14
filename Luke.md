@@ -1,4 +1,0 @@
----
-aliases:
-  - Luke the Apostle
----

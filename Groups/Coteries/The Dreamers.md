@@ -1,4 +1,4 @@
-- A group of canaries sent to [[New York]] to investigate [[The Peace]] by [[Ella]], [[Floren]], [[Oleus]], [[Ayesha]], and ((Alcott's sire here))
+- A group of canaries sent to [[New York]] to investigate [[The Peace]] by [[Ella]], [[Floren]], [[Oleus]], [[Ayesha]], and [[Anatoli Dracul]]
 	- [[Chud]]
 	- [[Ash]]
 	- [[Hasan]]

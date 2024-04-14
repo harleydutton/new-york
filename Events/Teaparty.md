@@ -1,0 +1,7 @@
+- A shared diablerie hosted by [[Belladonna]]
+- Guests were
+	- [[Ash]]
+	- [[Chud]]
+	- [[Hasan]]
+- [[Maximillion]] was the main course
+- [[Amy]] and potentially [[Bast]] influenced the ritual

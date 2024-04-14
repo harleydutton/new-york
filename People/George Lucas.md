@@ -1,0 +1,4 @@
+- Appears to be a retainer of [[Joseph Campbell]]
+- Creator of the Star Wars films
+- Possibly a mage
+- Killed by [[Hasan]]

@@ -1,0 +1,4 @@
+- A pool of water
+- Ringed with glowing blue runes
+- On the path back to [[New York|Manhattan Island]] from [[The Furnace]]
+- A place of importance to [[Vera]]

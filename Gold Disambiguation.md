@@ -1,0 +1,4 @@
+- [[The Gold Dragon|Gold Dragon]]
+- [[The Gold Dragon|Gold-Eyed Child]]
+- [[The Creator]] (on this list because they are usually portrayed as golden)
+- [[El Dorado|The City of Gold]]

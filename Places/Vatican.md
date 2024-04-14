@@ -1,0 +1,4 @@
+- A place of true faith
+- In Rome, Italy
+- Home of [[The Apostles]]
+- Potentially a manse of [[Clan Ventrue|Ventrue]] powerwoman

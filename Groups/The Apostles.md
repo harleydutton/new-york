@@ -1,0 +1,11 @@
+---
+aliases:
+  - Apostle
+---
+- Came to [[New York|NY]] from the [[Vatican]] to hunt [[The Dreamers]]
+- [[Matthew]]
+- [[Mark]]
+- [[Luke]]
+- [[Vatican]] hunters
+- Corrupt
+- True faith

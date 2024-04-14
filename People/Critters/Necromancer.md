@@ -1,0 +1,3 @@
+- A pure black pony
+- [[Chud]] nudged [[Jacob]] into requesting a pony from [[Lady Ito|Izumi]] in exchange for his help with taking over [[The Ward]]
+- Traded to [[Chud]] for [[Guts]]

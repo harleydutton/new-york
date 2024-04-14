@@ -5,6 +5,7 @@ aliases:
   - Luke
 ---
 - [[Clan Nosferatu]]
+- Childer of either [[Annabelle]] or [[Oleus]]
 - Horribly scarred, tall and thin, wears a straw hat, overalls, and cowboy boots
 - Likes animals more than people and typically has at least one ghouled animal with him
 - Enjoys annoying people

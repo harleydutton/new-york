@@ -1,0 +1,2 @@
+- [[Bast]] gave him to [[Otto Giovanni]] to settle a blood debt
+- Protege and possibly childer of [[Bast]]

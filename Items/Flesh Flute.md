@@ -1,0 +1,3 @@
+- Created by [[Saladeem]]
+- A flute made of flesh
+- Has a woman's lips on one end and genitals on the other end

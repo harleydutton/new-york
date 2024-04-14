@@ -1,0 +1,3 @@
+- Speaker of [[Ventrue Elysium]]
+- Prim and proper old business woman
+- Wears a pantsuit

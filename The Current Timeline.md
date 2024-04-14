@@ -282,3 +282,9 @@
 	- [[Ash]] slaps [[Matthew]] and begins to walk away
 	- [[Matthew]] turns the crowds of the devout to salt in a storm of divine lightning and walks back inside
 - Before he makes it back inside [[Hasan]] shoots [[Matthew]] with a poison dart, but a halo flashes upon [[Matthew|Matthew's]] brow and [[Hasan]] is poisoned
+- [[Chud]] uses [[The Flock]] to search for [[Mr. Pickle]] and [[Bobo]] tells him [[Mr. Pickle]] is on a secret mission
+- [[Hasan]] visits [[Chalmers]] who seems very scared and asks him to distribute letters asking for help with [[The Apostles]] and is mostly told to fuck off and that his letters will be delivered
+- [[Belladonna]] tries to convince [[Billy Rubio|Prince Rubio]] to help with [[The Apostles]]
+- [[Ash]] goes to [[Ventrue Elysium]] and tries to convince [[Mrs. Avery]] to help deal with [[The Apostles]] and is not terribly successful
+- [[Glenn]] spent the night out in the woods meditating near [[Carthage]]
+- [[Chud]] arranges a pigeon funeral at [[Vlad's Lighthouse]] and [[The Dreamers]] notice
