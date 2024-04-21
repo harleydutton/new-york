@@ -3,7 +3,7 @@ aliases:
   - Brujah
 ---
 - [[Frank Leone]]
-- [[Frank Wayne]]
+- [[Colonel Wayne]]
 - [[Krista]]
 - [[Liliana]]
 - [[The Red Heels]]

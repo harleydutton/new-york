@@ -5,5 +5,5 @@ aliases:
 
 - blood pyramid scheme
 - endless Ghouls/Vampires
-- controlled by [[Frank Wayne]]
+- controlled by [[Colonel Wayne]]
 - guns and military uniforms with red heels

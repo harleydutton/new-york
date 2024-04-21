@@ -1,3 +1,7 @@
-[[Clan Lasombra]]
-Made crazy by [[Lillith]]
-Scottish, carries a cane and top hat
+- [[Clan Lasombra]]
+- Made crazy by [[Lillith]]
+- Scottish prince
+- Old
+- Diablerist
+- Vampire
+- Carries a cane and top hat

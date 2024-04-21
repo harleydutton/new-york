@@ -13,3 +13,4 @@
 - The Outsiders
 - Why were the [[The Seven]] and [[The Cadre]] fighting in [[The First Dream]]?
 - What are [[EX]]'s motivations?
+- What's up with all things gold?

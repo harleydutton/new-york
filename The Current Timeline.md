@@ -288,3 +288,27 @@
 - [[Ash]] goes to [[Ventrue Elysium]] and tries to convince [[Mrs. Avery]] to help deal with [[The Apostles]] and is not terribly successful
 - [[Glenn]] spent the night out in the woods meditating near [[Carthage]]
 - [[Chud]] arranges a pigeon funeral at [[Vlad's Lighthouse]] and [[The Dreamers]] notice
+## Dec 6, night 40
+- [[Chud]] awakens in his truck to find it stopped and one of [[The Apostles]] preaching at it, him, and his driver
+	- He escapes out the back with [[Necromancer]] but his truck, driver and, notably, [[Hamburger]] were turned to slag by sky beams
+- [[Chud]] calls a meeting of [[The Dreamers]] at [[Belladonna|Belladonna's]] haven
+	- He relates the events of this morning to the group and convinces the group we need to go check out [[The Rune Well]] and [[The Furnace]]
+- At [[The Rune Well]], [[The Dreamers]] are confronted with their doppelgangers who mirror their actions and prevent their passage
+	- [[Chud]] puts a stake on a rope, asks [[The Dreamers]] to stake him and throw him into the well
+	- [[Ash]] used [[The Unbonding Mirror]] to release his [[Doppelganger]] who then fainted
+	- [[Belladonna]] grabbed her clone with her tentacles to root it in place, and swam around it
+	- [[Hasan]] have his clone a stake and then made it stake itself
+	- [[Glenn]] gave his clone his [[Lightsaber]] and had it stab itself
+	- [[Jacob]] used the [[Cloak of Moon and Stars]] fly past his clone
+- In [[The Furnace]], [[Glenn]] and [[Jacob]] speak with [[Lillith]]
+	- She offers them a way to fight [[The Apostles]]
+		- She places the upside down mark of the cross upon [[Glenn]], who gains wings of fire, and [[Jacob]], who now has a heat shimmer when he speaks
+		- She gives [[Ash]], [[Chud]], and [[Hasan]] a permanent heat shimmer and flaming halos that appear near and protect against those of true faith 
+		- She gives [[Belladonna]] a pale white hair tentacle and says she will be able to call upon her light to combat those of the true faith
+	- She claims to be the one sending [[The Dreams]]
+- [[The Dreamers]] head over to the [[Dreamer's Elysium]] they organized outside [[New York|The City]]
+	- Attendees: [[Liliana]], [[Frank Leone|Frank]], [[Colonel Wayne]], [[James]], [[The New Gods]], [[Alexander]], [[Amy]], [[Father Nicolas|Father Nic]], [[Jamie]], [[Tony]], [[Dr. Cantor]], 
+	- [[Billy Rubio|Billy]] informs [[The Dreamers]] that [[Hell Gate]] has been hit with fire from the sky and is gone
+	- There is much discussing upon the subject of how to kick [[The Apostles]] out of town
+	- At one point, everyone looks around and realizes they have recreated a dark version of the last supper on accident
+## Dec 7, night 41
