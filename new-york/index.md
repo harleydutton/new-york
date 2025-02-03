@@ -385,9 +385,9 @@ title: The Current Timeline
 - [[The Scream]]
 - [[The Dreamers]] go to [[The Hive]] with intent to kill the [[The Outsiders|Outsider]] [[Cosimo]]. When they arrive [[Franchesca]] is possessed by [[Cosimo]] and speaks to them with his voice. [[Cosimo|Cosimo's]] chair is lifeless and [[Franchesca]] is protected by some sort of forcefield. [[The Dreamers]] begin attacking her and manage to wound her despite the forcefield and she tries to flee. [[Belladonna]] restrains [[Franchesca]]/[[Cosimo]] with tentacles of darkness and [[Lala]] goes super Saiyan before delivering the coup de grace, [[Diablerie|Diablerizing]] both spirits and banishing them from the timeline.
 - [[Glenn]] breaks the magical batteries filled with energy from [[The Outside]]. There was one pointed at [[Bass Reality]] and the [[World Trade Center]].
-- [[The Dreamers]] went to [[Bass Reality]] and spoke with [[EX]]. Somewhere along the way they encountered [[Jack]] and told him thew were letting [[Dr. Lee Sung]] out of his prison so they could kill him. They negotiate with him and...?
+- [[The Dreamers]] went to [[Bass Reality]] and spoke with [[EX]]. Somewhere along the way they encountered [[Jack]] and told him thew were letting [[Dr. Lee Sung]] out of his prison so they could kill him. Upon meeting [[Jack]], whom he revered as a god inside his virtual reality prison, negotiations commenced and [[Dr. Lee Sung]] peacefully left this reality back to [[The Outside]].
 - Lastly, [[The Dreamers]] go to the [[World Trade Center]] for [[Nicolai Kadnikov]]. He has apparently gone mad and exists inside some kind of magical and mechanical prison which the [[The Dreamers|Dreamers]] pry open to discover...?
-- With all three [[The Outsiders|Outsiders]] dealt with the effects of [[The Scream]] cease. The sky returns to normal and life goes on.
+- With all three [[The Outsiders|Outsiders]] dealt with the effects of [[The Scream]] cease. The sky returns to normal, [[Lillith]] chills the fuck out, and unlife goes on.
 ## Aftermath
 - It is revealed [[Jacob]] had been working closely with [[Cong Chang|The Dominus]] and is likely plotting [[Vinnie|Vinnie's]]release.
 - Something happens with [[Lillith]]?
