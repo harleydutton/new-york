@@ -299,7 +299,7 @@ title: The Current Timeline
 	- He relates the events of this morning to the group and convinces the group we need to go check out [[The Rune Well]] and [[The Furnace]]
 - At [[The Rune Well]], [[The Dreamers]] are confronted with their doppelgangers who mirror their actions and prevent their passage
 	- [[Chud]] puts a stake on a rope, asks [[The Dreamers]] to stake him and throw him into the well
-	- [[Ash]] used [[The Unbonding Mirror]] to release his [[Doppelganger]] who then fainted
+	- [[Ash]] used [[The Unbonding Mirror]] to release his [[Ling]] who then fainted
 	- [[Belladonna]] grabbed her clone with her tentacles to root it in place, and swam around it
 	- [[Hasan]] have his clone a stake and then made it stake itself
 	- [[Glenn]] gave his clone his [[Lightsaber]] and had it stab itself
@@ -348,7 +348,7 @@ title: The Current Timeline
 - [[Billy Rubio|Billy]] calls an evil meeting where he tells [[Hasan]] to go deal with a new cult-like club that has sprung up.
 	- [[The Dreamers]] go to the club and ask to meet. They are received with ill humor and all hell breaks loose. The cult leader is kidnapped for a chat with [[Billy Rubio|Billy]], some candles are stolen, and the club is burned down.
 	- The cult/club is called [[The Church of the Damned Rebirth]].
-- After the dream, [[The Dreamers]] collected and went down [[The Moon Well]] to visit the [[The Gold Dragon|Gold Dragon]] in [[The Furnace]].
+- After the dream, [[The Dreamers]] collected and went down [[The Rune Well]] to visit the [[The Gold Dragon|Gold Dragon]] in [[The Furnace]].
 	- The [[The Gold Dragon|Gold Dragon]] is an embodiment of [[Lillith]] and claims there is a fatal flaw in the fabric of this universe that needs to be fixed by the next solar eclipse.
 	- [[Lillith]] also claims to have been universe hopping and initially left this universe because of her distain for the [[White God]]. Claims to have come back because what he did to this universe made it feel like home. She claims to have stolen the power of creation at some point in this saga.
 - [[Jacob]] finishes decrypting the last of the coded files stolen from [[The Old Chantry]]. ([[Vera]], [[The Treaty]], [[Floren]], [[Lashtak]], [[Ethan Pliskin|Ethan]])
