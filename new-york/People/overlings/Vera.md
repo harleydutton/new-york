@@ -11,3 +11,4 @@ aliases:
 - True name is "Felurian"
 - Cares about [[The Rune Well]] to some degree
 - Commands some werewolves
+- Originally a mortal woman before she became the immortal avatar of the park

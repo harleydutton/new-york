@@ -3,3 +3,5 @@
 	- [[Sid]]
 	- [[Father Nicolas|Father Nic]]
 	- [[Ash]]
+	- [[The Dark Lady]]
+	- [[Santanico Pandemonium]]

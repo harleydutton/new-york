@@ -207,7 +207,7 @@ title: The Current Timeline
 	- Found [[Belladonna]] in torpor in a cell, got creeped out, blood bonded her, and woke her up
 	- [[Jacob]] acquired a blank book for [[Wally]] and used the blank card to summon [[Deocar]] who kicked him out and told him to see [[Cong Chang|The Dominus]] after class 
 	- Got chased out of [[The Chantry]] by [[Edren]]
-- [[Ash]] is visited by [[Sid]] and [[Father Nicolas|Father Nic]] and learned of the troupes of "The Dark Lady", "Santanico Pandemonium", "The Clowns", and Father Nic's troupe
+- [[Ash]] is visited by [[Sid]] and [[Father Nicolas|Father Nic]] and learned of the troupes of [[The Dark Lady]], [[Santanico Pandemonium]], "The Clowns", and Father Nic's troupe
 - [[Chud]] calls [[Oleus]] and learns about [[The Ledger]] and continues setting up the brewery
 - [[Glenn]] went to [[Krista's Elysium]], danced with [[Krista]], and raised his standing with her and the [[Clan Brujah|Brujah]]
 - [[Belladonna]] meets with [[Bast]], puts out a not-star, her hair becomes a source of darkness, and she is told to meet the dreamers
@@ -316,3 +316,78 @@ title: The Current Timeline
 	- There is much discussing upon the subject of how to kick [[The Apostles]] out of town
 	- At one point, everyone looks around and realizes they have recreated a dark version of the last supper on accident
 ## Dec 7, night 41
+- [[The Dreamers]] are on the way to [[Liberty Island]] to rescue [[Mr. Pickle]] from [[Big John]].
+- [[Ash]] scouts [[Liberty Island]] and finds no life but the human night guards.
+- [[The Dreamers]] see [[Ethan Pliskin|Ethan]] in the tunnels below the island kneeling before his sister's grave. [[Mr. Pickle]] is kneeling beside him though [[Chud]] determines this to be an illusion.
+- [[Ash]] uses necromancy to speak to [[Valentine]]. With [[Ash]] as necromantic interpreter [[Valentine]] informs [[Chud]] that [[Mr. Pickle]] was trying to recruit [[Ethan Pliskin|Ethan]] to his cause and tells [[Ethan Pliskin|Ethan]] to leave [[Liberty Island]] and carry on her mission.
+## Dec 8, night 42
+- Freaks have begun gathering in the city for the upcoming festival.
+- [[Hasan]] and [[Chud]] squat in one of [[Lady Ito|Izumi's]] personal apartment rooms given their haven's have recently been destroyed.
+- [[Belladonna]] learns to walk the void from [[Billy Rubio|Billy]] and he tells her how she might find [[James]], a more powerful potential mentor of [[Clan Lasombra]]
+- [[Father Nicolas|Father Nic]] shows [[Chud]] the mechanics of reading minds in exchange for a promise he will perform in whatever performance [[Ash]] puts on at [[Freaks United]].
+## Dec 9, night 43
+- [[Glenn]] walks the ley lines and ends up interrupting [[Jack]] while he is collecting [[Vinnie|Vinnie's]] blood in a kiddie pool the turns the blood fountaining out of the air into blood coins. They bicker.
+- [[Belladonna]] does hunting dark haired beauties in order to attract [[James]]' attention
+- [[Chud]] asks [[Ash]] how he can help with the upcoming performance for [[Freaks United]] and is put on decorative bird duty
+## Dec 10, night 44
+- [[Freaks United]]
+	- [[Ash]] puts on a pirate ship battle with swordfights on tightropes and silks.
+		- This includes a golden anglerfish representing [[Lillith]] and a skeletal mermaid representing [[Vinnie]].
+		- They fight in comedic fashion and both ships end up sinking.
+		- [[Ash]] denounces [[Lillith]] and [[The Dreamers]]. [[Ling]] stakes [[Ash]] and proclaims support for [[The Dream]].
+		- [[The Dark Lady]] puts on a fire show
+		- [[Father Nicolas|Father Nic]] does the usual ballet thing
+		- [[Santanico Pandemonium]] puts on a show of some kind
+- [[The Dreamers]] meet under [[Grand Central Station]] to regroup
+	- [[Ash]] is staked and left in caring hands
+	- [[Ling]] is on the loose
+	- [[Chalmers]], [[Chud]], [[Hasan]], and [[Billy Rubio|Billy]] begin plans for a bunker on [[Mill Rocks]] as a new haven for [[The Dreamers]].
+## Dec 11, night 45
+- [[The Fourth Dream]]
+	- [[The Dreamers]] meet [[Lala]] in the dream. [[Chud]], [[Glenn]], and [[Jacob]] made plans to track her down within [[New York|The City]] and [[Glenn]] later finds her in the park.
+- [[Billy Rubio|Billy]] calls an evil meeting where he tells [[Hasan]] to go deal with a new cult-like club that has sprung up.
+	- [[The Dreamers]] go to the club and ask to meet. They are received with ill humor and all hell breaks loose. The cult leader is kidnapped for a chat with [[Billy Rubio|Billy]], some candles are stolen, and the club is burned down.
+	- The cult/club is called [[The Church of the Damned Rebirth]].
+- After the dream, [[The Dreamers]] collected and went down [[The Moon Well]] to visit the [[The Gold Dragon|Gold Dragon]] in [[The Furnace]].
+	- The [[The Gold Dragon|Gold Dragon]] is an embodiment of [[Lillith]] and claims there is a fatal flaw in the fabric of this universe that needs to be fixed by the next solar eclipse.
+	- [[Lillith]] also claims to have been universe hopping and initially left this universe because of her distain for the [[White God]]. Claims to have come back because what he did to this universe made it feel like home. She claims to have stolen the power of creation at some point in this saga.
+- [[Jacob]] finishes decrypting the last of the coded files stolen from [[The Old Chantry]]. ([[Vera]], [[The Treaty]], [[Floren]], [[Lashtak]], [[Ethan Pliskin|Ethan]])
+	- He goes to speak with [[Vera]] in [[Central Park|The Park]] and makes more agreements regarding the contents of [[Vinnie|Vinnie's]] file on her.
+	- Learns [[Vera]] was originally a mortal woman
+- The candles stolen from [[The Church of the Damned Rebirth]] indicate the existence of another living god by the name of [[Ozymandius]].
+- [[Chud]] takes [[Hasan]] and [[Lala]] to speak with [[EX]] who reveals he is father of [[Assam]], progenitor of [[Clan Assamite]].
+- A gold aurora borealis appears over [[Central Park|The Park]] signaling the arrival of the [[Lakota Soux]] werewolves. They are rude and try to start a fight. Sheriff [[Hasan]] obliges them and slaps their chief. [[The Dreamers]] battle the [[Lakota Soux]] werewolves in [[Central Park|The Park]].
+	- The fight goes at first poorly and [[Bast]] stops time and offers each dreamer a demonic pact which would grant the power to help win the fight.
+		- [[Glenn]] gains a third inner demon.
+		- [[Belladonna]] hair turns into tendrils of darkness.
+		- [[Hasan]] gets something I don't remember.
+	- Many favors are called in to eventually win the fight.
+		- [[Chud]] uses one of his favors with [[EX]].
+		- [[Hasan]] used [[Vera|Vera's]] true name, [[Vera|Felurian]], and commanded her aid in the battle and eternal enmity afterward.
+	- [[Glenn]] turned into a [[The Gold Dragon|Gold Dragon]] and razed half the city.
+## Dec 12-Feb 11, two months pass
+- The city mourns and rebuilds
+- Many rites of passing are conducted for the fallen
+- Havens are rebuilt, notably the bunker on [[Mill Rocks]] is finished in secret
+- There is an evil meeting between [[The Dreamers]] and [[The Prodigy]]. A group [[The Bean|Bean]] painting is painted, orchestrated by [[Jamie]]
+	- It depicts [[Lillith]] and [[The Seven]] with bullet holes in their heads. A notable exception is that [[Amy|Amy's]] bullet hole is in her eye rather than in the middle of her forehead.
+- [[Glenn]] went back to China for a couple weeks to report in. He was made emissary of the East.
+- Hasan returned to the [[Eagle's Nest]] to speak with [[Assam]], progenitor of [[Clan Assamite]]. He gives [[Hasan|Hasan's]] his blood, sword, and blessing.
+- [[Belladonna]] went to the void and spoke with [[James]]. He told her where to find her sire, whom she intends to destroy. She learns [[Lasombra]] is the void. [[Belladonna]] later enters the [[Void|Abyss]] to hunt down and kill her sire. [[Rex]], a voidhound guides her to a smoking room. She dons a smoking jacket, smokes a cigarette with [[Ramon]]. He claims to be here human brother in addition to her vampiric sire. She [[Diablerie|Diablerized]] him and [[Lillith]] can be heard screaming as she steps back into reality.
+- [[Lala]] spoke with [[Alexander]] about his painting and was instructed to seduce [[Christopher 'Thorne' Leighton|Christopher]] back into line and steal or break [[The Unbonding Mirror]], which was in [[Ash|Ash's]] possession. All memories of this conversation appear false to other [[The Dreamers|Dreamers]].
+- [[Jacob]] is very secretive and hides his actions from the other [[The Dreamers|Dreamers]]. He is known to have started a cult on Tinder during this time.
+- [[Chud]] got the location [[Mr. Pickle|Ser Pickle]] was being held at from an obese pigeon. He went to the address and found [[Big John]] dead, [[Mr. Pickle|Ser Pickle]] wounded, and [[Winchester]]. [[Chud]] gave [[Mr. Pickle|Ser Pickle]] some of his [[Vitae]] to revitalize him and learned the story of how [[Mr. Pickle|Ser Pickle]] had set out to track down [[Big John]] after he captured [[Chud]]. [[Chud]] turned [[Big John]] into a vampire and imprisoned him at [[The Hidden Pools]] for later questioning.
+- At the behest of [[Chud]], [[Amy]] and [[The Dreamers]] meet at [[The Zoo]]. [[Amy]] invited [[Christopher 'Thorne' Leighton|Christopher]] and [[Sito]] and the kindred and many animals pass the night telling stories around a fire.
+	- [[Sito]] gives [[Chud]], [[Mr. Pickle|Ser Pickle]], and [[Belladonna]] a midnight tour of [[The Zoo]] and many animal friends are made.
+	- A great horned owl tells a story about the first egg to hatch and the last feather to fall in living memory of today's owls. The wheel turns.
+	- [[Glenn]] leads [[Amy]] in a meditative journey to help awaken her. She opens her third eye and everyone who meets this gaze experiences a profound realization about themselves and [[Amy]].
+## Feb 12, night 46
+- [[The Scream]]
+- [[The Dreamers]] go to [[The Hive]] with intent to kill the [[The Outsiders|Outsider]] [[Cosimo]]. When they arrive [[Franchesca]] is possessed by [[Cosimo]] and speaks to them with his voice. [[Cosimo|Cosimo's]] chair is lifeless and [[Franchesca]] is protected by some sort of forcefield. [[The Dreamers]] begin attacking her and manage to wound her despite the forcefield and she tries to flee. [[Belladonna]] restrains [[Franchesca]]/[[Cosimo]] with tentacles of darkness and [[Lala]] goes super Saiyan before delivering the coup de grace, [[Diablerie|Diablerizing]] both spirits and banishing them from the timeline.
+- [[Glenn]] breaks the magical batteries filled with energy from [[The Outside]]. There was one pointed at [[Bass Reality]] and the [[World Trade Center]].
+- [[The Dreamers]] went to [[Bass Reality]] and spoke with [[EX]]. Somewhere along the way they encountered [[Jack]] and told him thew were letting [[Dr. Lee Sung]] out of his prison so they could kill him. They negotiate with him and...?
+- Lastly, [[The Dreamers]] go to the [[World Trade Center]] for [[Nicolai Kadnikov]]. He has apparently gone mad and exists inside some kind of magical and mechanical prison which the [[The Dreamers|Dreamers]] pry open to discover...?
+- With all three [[The Outsiders|Outsiders]] dealt with the effects of [[The Scream]] cease. The sky returns to normal and life goes on.
+## Aftermath
+- It is revealed [[Jacob]] had been working closely with [[Cong Chang|The Dominus]] and is likely plotting [[Vinnie|Vinnie's]]release.
+- Something happens with [[Lillith]]?

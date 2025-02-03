@@ -1,0 +1,2 @@
+- Progenitor of [[Clan Lasombra]]
+- Turned into the [[Void]]

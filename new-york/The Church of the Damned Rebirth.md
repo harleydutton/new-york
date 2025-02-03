@@ -1,0 +1,1 @@
+- Burned down by [[The Dreamers]] on the command of prince [[Billy Rubio]] after a small period of time operating in [[New York|The City]]

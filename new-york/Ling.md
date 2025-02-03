@@ -1,0 +1,3 @@
+- Magical twin reflection being of [[Ash]]
+- Experienced horror upon knowing his reality
+- Rebelled against [[Ash]] and staked him at the end of [[Freaks United]]

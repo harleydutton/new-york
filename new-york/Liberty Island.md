@@ -1,0 +1,2 @@
+- statue of liberty
+- home of [[Ethan Pliskin]]

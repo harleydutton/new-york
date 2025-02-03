@@ -1,1 +1,6 @@
+---
+aliases:
+  - Ethan
+---
+
 Wrote the little black book on [[The Unbonding]] [[Chud]] and [[Hasan]] read while visiting [[The Chantry]].

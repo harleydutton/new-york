@@ -1,0 +1,3 @@
+- dead
+- maybe an angel
+- [[Ethan Pliskin]]'s sister

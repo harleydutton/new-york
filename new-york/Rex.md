@@ -1,0 +1,3 @@
+- A voidhound.
+- Lupine creature of shadow.
+- Guided [[Belladonna]] to [[Ramon]] through the [[Void|Abyss]].

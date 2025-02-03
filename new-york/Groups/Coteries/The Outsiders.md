@@ -2,8 +2,10 @@
 aliases:
   - Outsider
   - Outsiders
+  - Outsider's
 ---
-From another reality as per [[The Time Loop]]. Called "enemies to reality" by [[Vinnie]].
+- Those who come into a time bubble as per [[The Time Loop]]. Called "enemies to reality" by [[Vinnie]], [[Amy]], and most others, [[EX]] being a notable exception.
+- Because they are not of this reality they cannot be killed by normal means and have a corrupting influence on everything they come in contact with.
 - [[Cosimo]]
 - [[Nicolai Kadnikov]]
 - [[Dr. Lee Sung]]

@@ -1,0 +1,4 @@
+- Zookeeper of [[The Zoo]]
+- [[Clan Gangrel]]
+- Friendly to [[Chud]] and [[The Dreamers]]
+- Huge drooping moustache

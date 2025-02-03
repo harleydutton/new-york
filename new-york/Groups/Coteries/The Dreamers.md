@@ -1,3 +1,7 @@
+---
+aliases:
+  - Dreamers
+---
 - A group of canaries sent to [[New York]] to investigate [[The Peace]] by [[Ella]], [[Floren]], [[Oleus]], [[Ayesha]], and [[Anatoli Dracul]]
 	- [[Chud]]
 	- [[Ash]]

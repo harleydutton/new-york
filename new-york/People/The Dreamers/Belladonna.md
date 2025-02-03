@@ -7,3 +7,4 @@ aliases:
 - [[Clan Lasombra]]
 - Looks to be about 6, is about 28
 - Spent time staked in a [[Clan Tremere|Tremere]] prison cell
+- Childer of [[Ramon]]

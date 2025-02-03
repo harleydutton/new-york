@@ -1,0 +1,2 @@
+- Childer of [[EX]]
+- Progenitor of [[Clan Assamite]]
