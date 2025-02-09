@@ -1,2 +1,2 @@
-[[Clan Assamite]]
-operates the [[Assamite Blood Bank]]
+- [[Clan Assamite]]
+- Operates the [[Assamite Blood Bank]]

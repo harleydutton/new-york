@@ -1,12 +1,13 @@
 ---
 aliases:
   - Enoch Xarr
+  - EX's
 ---
-affiliated with [[Jack]]
-jailor of 2/4 [[The Outsiders]]s
-2nd generation vampire
-Of [[Enoch, the First City]]
-Goal to cure vampirisim and using tech.
-Very technologically advanced.
-Fast as fuck.
-Sired by [[Caine]]
+- Affiliated with [[Jack]]
+- Jailer of two of the four [[The Outsiders]]
+- 2nd generation vampire
+- Of [[Enoch, the First City]]
+- Goal to cure vampirisim and using tech
+- Very technologically advanced
+- Fast as fuck
+- Sired by [[Caine]]

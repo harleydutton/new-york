@@ -1,5 +1,5 @@
 - In [[Carthage]]
 - Where [[The Upstate Map]] leads
-- Has 5 [[Sun Stone]] making it very hard for vampires to get in
+- Has trap made of 5 [[Sun Stone|Sun Stones]] making it very hard for vampires to get in
 	- Created by [[Jack]]
 - Where [[Vinnie]] is imprisoned

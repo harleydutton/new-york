@@ -2,6 +2,5 @@
 aliases:
   - Liliana's
 ---
-
-Inhabited by [[Krista]]
-[[Clan Brujah]]
+- Inhabited by [[Krista]]
+- [[Clan Brujah]]

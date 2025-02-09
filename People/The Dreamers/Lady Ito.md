@@ -6,16 +6,15 @@ aliases:
   - Izumi's
 ---
 - Lady Ito
-	- "the technical term is nuttier than a fruitcake" -[[Chud]]
-	- split personality
+	- Split personality
 - Izumi
-	- model, has a manager named [[Vincent]]
-	- killed her 10 year old sister, Fukuyoko
-	- classy as heck
-	- lives in [[The Thorn]]
-	- has claimed [[Alcott|Alcott Dracul]] as her husband
+	- Model, has a manager named [[Vincent]]
+	- Killed her 10 year old sister, Fukuyoko
+	- Classy as heck
+	- Lives in [[The Thorn]]
+	- Has claimed [[Alcott|Alcott Dracul]] as her husband
 - Fukuyoko
-	- ghost who possesses Izumi
-	- wants to experience the life that was taken from her
-	- hot but in a trashy way
-	- feral, hedonist, drug addict
+	- Ghost who possesses Izumi
+	- Wants to experience the life that was taken from her
+	- Hot but in a trashy way
+	- Feral, hedonist, drug addict

@@ -3,4 +3,4 @@ aliases:
   - Slim Jim
 ---
 - [[The Fae]]
-- can shapeshift into slim jim by breathing out
+- Can shapeshift into [[Fat Pat|Slim Jim]] by breathing out

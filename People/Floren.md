@@ -1,2 +1,2 @@
-- [[Ash]]'s sire
+- [[Ash|Ash's]] sire
 - [[Clan Gangrel]]

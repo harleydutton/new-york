@@ -2,7 +2,6 @@
 aliases:
   - The Druggler
 ---
-
-[[Lady Ito]]'s childer
-Drug dealer
-given to [[Ash]]
+- [[Lady Ito|Izumi's]] childer
+- Drug dealer
+- Given to [[Ash]]

@@ -1,8 +1,8 @@
 ---
 aliases:
   - George Washington
+  - The General's
 ---
-
 - Looks suspiciously like George Washington
 - [[Clan Gangrel]]
 - Grabbed [[Jack]] one time and slapped him multiple times

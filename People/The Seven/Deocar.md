@@ -1,2 +1,3 @@
-Roman antimagic legionary (celerity, fortitude and potence)
-[[The Seven]]
+- Roman legionary
+- Enforcer for the [[The Seven]]
+- Most closely aligned with [[Cong Chung|The Dominus]]

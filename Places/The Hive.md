@@ -1,2 +1,4 @@
-Where [[Cosimo]]'s chair and [[Franchesca]] reside.
-underground pyramid nightclub
+- [[Cosimo]]'s chair
+- [[Franchesca]]
+- Underground pyramid nightclub
+- Full of cultist dancer people

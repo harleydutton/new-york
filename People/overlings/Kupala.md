@@ -1,4 +1,0 @@
-- a demon
-- seems female
-- known to [[Bast]] for obvious reasons
-- uses [[Jamie]] as a mouthpiece

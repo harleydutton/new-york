@@ -1,7 +1,6 @@
 ---
 title: The Current Timeline
 ---
-
 ## Oct 25, three nights prior
  - The [[The Dreamers]] is awakened in California
  - Evil meeting with sires and [[Ella]]
@@ -14,11 +13,11 @@ title: The Current Timeline
 	- [[Ash]] puts on a circus in the park and meets with [[Christopher 'Thorne' Leighton]]
 	- [[Hasan]] checked in at the [[Assamite Blood Bank]]
 ## Oct 29, night 2
-- [[Hasan]] and [[Chud]] go to [[The Chantry]] and annoy [[Cong Chang]] and get a phone-pictures copy of [[Ethan's Little Black Book on the Unbonding]]
+- [[Hasan]] and [[Chud]] go to [[The Dominus' Chantry]] and annoy [[Cong Chung]] and get a phone-pictures copy of [[Ethan's Little Black Book on the Unbonding]]
 - [[Alcott]] goes to [[James]]/[[Billy Rubio]]'s [[The Calling]]
 - [[Ash]] meets with [[The General]] (and [[Tony]]) on [[Staten Island]]
 	- [[The Dreamers]] blockades [[Jack]] from [[The Calling]] at behest of [[The General]] as communicated to the group by [[Ash]]
-		- [[Lady Ito]] parties all night and night with [[Jasper]] at [[Toreador Elysium 1]]
+		- [[Lady Ito]] parties all night and night with [[Jasper]] at [[Toreador Elysium]]
 		- [[Chud]] welds himself inside [[Jack]]' submarine, and wakes up in his haven on [[Rikers Island]]
 ## Oct 30, night 3
 - [[Ash]] meets with [[Dr. Cantor]] at the [[Museum of Nature and Science]]
@@ -28,7 +27,7 @@ title: The Current Timeline
 	- [[Lady Ito]] befriends [[Alexander]] who suggests she speak with [[Christopher 'Thorne' Leighton]] on the subject of gaining control of [[Ward Island]]
 ## Oct 31, night 4
 - [[Lady Ito]] and [[Alcott]] visit [[Christopher 'Thorne' Leighton]] about [[Ward Island]] takeover
-- [[Ash]] plans a ritual/heist of [[The Chantry]] with [[Bast]]
+- [[Ash]] plans a ritual/heist of [[The Dominus' Chantry]] with [[Bast]]
 - [[Hasan]] and [[Chud]] go meet the neighbors [[Chalmers]] told them about
 	- One of them was spying on [[Hell Gate]] and tried to implicate chalmers when caught
 - Evil meeting is called and the [[The Dreamers]] meets with [[Chalmers]] about the neighbors.
@@ -137,11 +136,11 @@ title: The Current Timeline
 - [[The Dreamers]] meet and try to understand [[The Second Dream]]
 	- [[Jacob]] performs a [[Vaulderie]] for [[The Dreamers]] as [[Alcott]] is retired
 	- [[Amy]] cleanses the [[The Outsiders|Outsider]] taint from [[Lady Ito|Izumi's]] blood because [[Chud]] claims her blood is "tentacley"  and wont drink it
-- [[Chud]], [[Hasan]], [[Glenn]] and [[Jacob]] go to [[The Chantry]]
+- [[Chud]], [[Hasan]], [[Glenn]] and [[Jacob]] go to [[The Dominus' Chantry]]
 	- [[Chud]] and [[Hasan]] are denied entry
-	- [[Jacob]] returns a library book [[The Dreamers]] checked out and makes inroads with [[The Chantry]]
+	- [[Jacob]] returns a library book [[The Dreamers]] checked out and makes inroads with [[The Dominus' Chantry]]
 		- He begins learning about magic and prophecies
-	- [[Cong Chang|The Dominus]] requests a meeting with [[Glenn]]
+	- [[Cong Chung|The Dominus]] requests a meeting with [[Glenn]]
 - [[Chud]] and [[Hasan]] go and visit [[Chalmers]]
 	- They talk and get drunk on [[Chud|Chud's]] [[Bloodshine]]
 	- [[Chud]] gives [[Chalmers]] 100 [[Blood Coins]]
@@ -166,7 +165,7 @@ title: The Current Timeline
 - [[Jacob]] spends time learning magic from [[Edren's Primer]]
 - [[Hasan]] meets with [[Lashtak]] to get new weapons and learn if it possible to share a [[Diablerie]]
 	- accidentally reveals that he has been getting [[Blood Coins]] from [[Chud]]
-- [[Glenn]] meets with [[Cong Chang|The Dominus]] and tells [[Cong Chang|The Dominus]] who sent him to [[New York|The City]] and in exchange he is directed to speak with [[Tony]]
+- [[Glenn]] meets with [[Cong Chung|The Dominus]] and tells [[Cong Chung|The Dominus]] who sent him to [[New York|The City]] and in exchange he is directed to speak with [[Tony]]
 - [[Glenn]] plays cards with [[Tony]], [[Krista]], [[Liliana]], and [[Frank Leone]] and learns about:
 	- [[The Treaty]]
 	- [[White Buffalo Calf Maiden]]
@@ -202,16 +201,16 @@ title: The Current Timeline
 - [[The Fourth Dream]] happens at some point during the week
 ## Dec 1, night 35
 - [[Chud]] and [[Hasan]] meet with [[Lashtak]] and learn about [[Belladonna]], an individual who is capable of leading a ritual for shared diablerie
-- [[The Dreamers]] go to [[The Chantry]]
+- [[The Dreamers]] go to [[The Dominus' Chantry]]
 	- They steal files on [[Vera]], [[Lashtak]], [[Ethan Pliskin]], and a copy of [[The Treaty]]
 	- Found [[Belladonna]] in torpor in a cell, got creeped out, blood bonded her, and woke her up
-	- [[Jacob]] acquired a blank book for [[Wally]] and used the blank card to summon [[Deocar]] who kicked him out and told him to see [[Cong Chang|The Dominus]] after class 
-	- Got chased out of [[The Chantry]] by [[Edren]]
+	- [[Jacob]] acquired a blank book for [[Wally]] and used the blank card to summon [[Deocar]] who kicked him out and told him to see [[Cong Chung|The Dominus]] after class 
+	- Got chased out of [[The Dominus' Chantry]] by [[Edren]]
 - [[Ash]] is visited by [[Sid]] and [[Father Nicolas|Father Nic]] and learned of the troupes of [[The Dark Lady]], [[Santanico Pandemonium]], "The Clowns", and Father Nic's troupe
 - [[Chud]] calls [[Oleus]] and learns about [[The Ledger]] and continues setting up the brewery
 - [[Glenn]] went to [[Krista's Elysium]], danced with [[Krista]], and raised his standing with her and the [[Clan Brujah|Brujah]]
 - [[Belladonna]] meets with [[Bast]], puts out a not-star, her hair becomes a source of darkness, and she is told to meet the dreamers
-- [[Chud]] and [[Ash]] team up to track down [[Belladonna]] after [[The Dreamers]] flee [[The Chantry]]. They find her at [[The Edge]]
+- [[Chud]] and [[Ash]] team up to track down [[Belladonna]] after [[The Dreamers]] flee [[The Dominus' Chantry]]. They find her at [[The Edge]]
 - [[Hasan]] visits [[The Dark Bazaar]] and is mentally scarred. He tries to blow up [[The Vessel]] and fails because it doesn't fully exist in this reality
 - [[Ash]] speaks with [[Jezebel]] at her shop about costumes in preparation for [[Freaks United]]
 ## Dec 2, night 36
@@ -225,7 +224,7 @@ title: The Current Timeline
 - [[Glenn]] and [[Hasan]] have another tense conversation with [[Vera]] (who knows they know her true name)
 	- [[Glenn]] swears an oath her name will never willingly pass his lips
 	- [[Vera]] gives him [[The Phoenecian Sword]] with his killer's name inscribed upon the blade
-- [[Jacob]] has a conversation with [[Cong Chang|The Dominus]] about [[The Tabula Rasa]]
+- [[Jacob]] has a conversation with [[Cong Chung|The Dominus]] about [[The Tabula Rasa]]
 ## Dec 3, night 37
 - [[The Dreamers]] scout and assault [[Fort Hamilton]]
 	- They encounter stiff resistance in the form of united states military hardware including Humvees, Strikers, mortars, an A10 Warthog, and 3 tanks
@@ -240,7 +239,7 @@ title: The Current Timeline
 	- [[Big John|John]] claims to have sired himself using one of [[Annabelle|Annabelle's]] childer
 	- [[Big John|John]] claims to be able to be a [[Clan Nosferatu]] bloodline that can temporarily or permanently remove the clan curse
 - [[Big John]] leaves and collapses the mine on [[Chud]], trapping him inside
-- [[Glenn]] asks [[Cong Chang|The Dominus]] for information about [[The Phoenecian Sword]] and is directed to [[Saladeem]]
+- [[Glenn]] asks [[Cong Chung|The Dominus]] for information about [[The Phoenecian Sword]] and is directed to [[Saladeem]]
 - [[Hasan]] goes to see [[Billy Rubio|Billy]] and tells him about the assault on [[Fort Hamilton]]. [[Billy Rubio|Prince Rubio]] declares the feude settled and tells [[Hasan]] he doesn't really love [[Sherry the Cherry|"Krista"]], [[Krista]] is dead, and she's possessing [[Sherry the Cherry]]
 - [[Chud]] breaks free of his bonds and gets calls upon the local fauna to help him escape the mine [[Big John]] trapped him in
 	- He learns of a third, secret passage the critters call [[The Furnace]], a place they will not tread
@@ -265,9 +264,9 @@ title: The Current Timeline
 - [[Belladonna]] wakes, feeds from [[Mommy Dearest]] and heads to [[Hell Gate]]
 	- [[Hasan]] and [[Billy Rubio|Billy]] meet her there and explain about digital cameras, the news, and the dangers of modern telivision
 	- [[Billy Rubio|Billy]] also informs the group three hunters ([[Matthew]], [[Mark]], and [[Luke]]) have been sent from the [[Vatican]]
-- [[Glenn]] goes to the [[The Chantry]] but notices he is being tailed on the way there
+- [[Glenn]] goes to the [[The Dominus' Chantry]] but notices he is being tailed on the way there
 	- he loses them, tails them for a bit, and figures they are going to [[Hell Gate]]
-	- [[Glenn]] tells [[Chud]] about the issue and speaks with [[Cong Chang|The Dominus]] about [[The Phoenecian Sword]]
+	- [[Glenn]] tells [[Chud]] about the issue and speaks with [[Cong Chung|The Dominus]] about [[The Phoenecian Sword]]
 - [[Chud]] does a little reconnaissance and alerts [[The Dreamers]] about the werewolves scouting [[Hell Gate]]
 - [[Glenn]] tries to make contact with the werewolves, one of whom is an omega, and they shift, killing all mortal onlookers before they begin hunting [[Chud]]
 - [[Belladonna]], [[Hasan]], and [[Jack]] begin harrying the werewolves to give [[Chud]] time to escape
@@ -310,7 +309,7 @@ title: The Current Timeline
 		- She gives [[Ash]], [[Chud]], and [[Hasan]] a permanent heat shimmer and flaming halos that appear near and protect against those of true faith 
 		- She gives [[Belladonna]] a pale white hair tentacle and says she will be able to call upon her light to combat those of the true faith
 	- She claims to be the one sending [[The Dreams]]
-- [[The Dreamers]] head over to the [[Dreamer's Elysium]] they organized outside [[New York|The City]]
+- [[The Dreamers]] head over to the temporary Elysium they organized outside [[New York|The City]]
 	- Attendees: [[Liliana]], [[Frank Leone|Frank]], [[Colonel Wayne]], [[James]], [[The New Gods]], [[Alexander]], [[Amy]], [[Father Nicolas|Father Nic]], [[Jamie]], [[Tony]], [[Dr. Cantor]], 
 	- [[Billy Rubio|Billy]] informs [[The Dreamers]] that [[Hell Gate]] has been hit with fire from the sky and is gone
 	- There is much discussing upon the subject of how to kick [[The Apostles]] out of town
@@ -326,7 +325,7 @@ title: The Current Timeline
 - [[Belladonna]] learns to walk the void from [[Billy Rubio|Billy]] and he tells her how she might find [[James]], a more powerful potential mentor of [[Clan Lasombra]]
 - [[Father Nicolas|Father Nic]] shows [[Chud]] the mechanics of reading minds in exchange for a promise he will perform in whatever performance [[Ash]] puts on at [[Freaks United]].
 ## Dec 9, night 43
-- [[Glenn]] walks the ley lines and ends up interrupting [[Jack]] while he is collecting [[Vinnie|Vinnie's]] blood in a kiddie pool the turns the blood fountaining out of the air into blood coins. They bicker.
+- [[Glenn]] walks the ley lines and ends up interrupting [[Jack]] while he is collecting [[Vinnie|Vinnie's]] blood in a kiddie pool that turns the blood fountaining out of the air into blood coins. They bicker.
 - [[Belladonna]] does hunting dark haired beauties in order to attract [[James]]' attention
 - [[Chud]] asks [[Ash]] how he can help with the upcoming performance for [[Freaks United]] and is put on decorative bird duty
 ## Dec 10, night 44
@@ -334,7 +333,7 @@ title: The Current Timeline
 	- [[Ash]] puts on a pirate ship battle with swordfights on tightropes and silks.
 		- This includes a golden anglerfish representing [[Lillith]] and a skeletal mermaid representing [[Vinnie]].
 		- They fight in comedic fashion and both ships end up sinking.
-		- [[Ash]] denounces [[Lillith]] and [[The Dreamers]]. [[Ling]] stakes [[Ash]] and proclaims support for [[The Dream]].
+		- [[Ling]] denounced [[The Dreamers]], stakes [[Ash]] and proclaims support for [[Lillith]].
 		- [[The Dark Lady]] puts on a fire show
 		- [[Father Nicolas|Father Nic]] does the usual ballet thing
 		- [[Santanico Pandemonium]] puts on a show of some kind
@@ -351,7 +350,7 @@ title: The Current Timeline
 - After the dream, [[The Dreamers]] collected and went down [[The Rune Well]] to visit the [[The Gold Dragon|Gold Dragon]] in [[The Furnace]].
 	- The [[The Gold Dragon|Gold Dragon]] is an embodiment of [[Lillith]] and claims there is a fatal flaw in the fabric of this universe that needs to be fixed by the next solar eclipse.
 	- [[Lillith]] also claims to have been universe hopping and initially left this universe because of her distain for the [[White God]]. Claims to have come back because what he did to this universe made it feel like home. She claims to have stolen the power of creation at some point in this saga.
-- [[Jacob]] finishes decrypting the last of the coded files stolen from [[The Old Chantry]]. ([[Vera]], [[The Treaty]], [[Floren]], [[Lashtak]], [[Ethan Pliskin|Ethan]])
+- [[Jacob]] finishes decrypting the last of the coded files stolen from [[Vinnie's Chantry]]. ([[Vera]], [[The Treaty]], [[Floren]], [[Lashtak]], [[Ethan Pliskin|Ethan]])
 	- He goes to speak with [[Vera]] in [[Central Park|The Park]] and makes more agreements regarding the contents of [[Vinnie|Vinnie's]] file on her.
 	- Learns [[Vera]] was originally a mortal woman
 - The candles stolen from [[The Church of the Damned Rebirth]] indicate the existence of another living god by the name of [[Ozymandius]].
@@ -373,7 +372,7 @@ title: The Current Timeline
 	- It depicts [[Lillith]] and [[The Seven]] with bullet holes in their heads. A notable exception is that [[Amy|Amy's]] bullet hole is in her eye rather than in the middle of her forehead.
 - [[Glenn]] went back to China for a couple weeks to report in. He was made emissary of the East.
 - Hasan returned to the [[Eagle's Nest]] to speak with [[Assam]], progenitor of [[Clan Assamite]]. He gives [[Hasan|Hasan's]] his blood, sword, and blessing.
-- [[Belladonna]] went to the void and spoke with [[James]]. He told her where to find her sire, whom she intends to destroy. She learns [[Lasombra]] is the void. [[Belladonna]] later enters the [[Void|Abyss]] to hunt down and kill her sire. [[Rex]], a voidhound guides her to a smoking room. She dons a smoking jacket, smokes a cigarette with [[Ramon]]. He claims to be here human brother in addition to her vampiric sire. She [[Diablerie|Diablerized]] him and [[Lillith]] can be heard screaming as she steps back into reality.
+- [[Belladonna]] went to the void and spoke with [[James]]. He told her where to find her sire, whom she intends to destroy. She learns [[Lasombra]] is the void. [[Belladonna]] later enters the [[Void|Abyss]] to hunt down and kill her sire. [[Rex]], a voidhound guides her to a smoking room. She dons a smoking jacket, smokes a cigarette with [[Ramon]]. He claims to be her human brother in addition to her vampiric sire. She [[Diablerie|Diablerized]] him and [[Lillith]] can be heard screaming as she steps back into reality.
 - [[Lala]] spoke with [[Alexander]] about his painting and was instructed to seduce [[Christopher 'Thorne' Leighton|Christopher]] back into line and steal or break [[The Unbonding Mirror]], which was in [[Ash|Ash's]] possession. All memories of this conversation appear false to other [[The Dreamers|Dreamers]].
 - [[Jacob]] is very secretive and hides his actions from the other [[The Dreamers|Dreamers]]. He is known to have started a cult on Tinder during this time.
 - [[Chud]] got the location [[Mr. Pickle|Ser Pickle]] was being held at from an obese pigeon. He went to the address and found [[Big John]] dead, [[Mr. Pickle|Ser Pickle]] wounded, and [[Winchester]]. [[Chud]] gave [[Mr. Pickle|Ser Pickle]] some of his [[Vitae]] to revitalize him and learned the story of how [[Mr. Pickle|Ser Pickle]] had set out to track down [[Big John]] after he captured [[Chud]]. [[Chud]] turned [[Big John]] into a vampire and imprisoned him at [[The Hidden Pools]] for later questioning.
@@ -386,8 +385,8 @@ title: The Current Timeline
 - [[The Dreamers]] go to [[The Hive]] with intent to kill the [[The Outsiders|Outsider]] [[Cosimo]]. When they arrive [[Franchesca]] is possessed by [[Cosimo]] and speaks to them with his voice. [[Cosimo|Cosimo's]] chair is lifeless and [[Franchesca]] is protected by some sort of forcefield. [[The Dreamers]] begin attacking her and manage to wound her despite the forcefield and she tries to flee. [[Belladonna]] restrains [[Franchesca]]/[[Cosimo]] with tentacles of darkness and [[Lala]] goes super Saiyan before delivering the coup de grace, [[Diablerie|Diablerizing]] both spirits and banishing them from the timeline.
 - [[Glenn]] breaks the magical batteries filled with energy from [[The Outside]]. There was one pointed at [[Bass Reality]] and the [[World Trade Center]].
 - [[The Dreamers]] went to [[Bass Reality]] and spoke with [[EX]]. Somewhere along the way they encountered [[Jack]] and told him thew were letting [[Dr. Lee Sung]] out of his prison so they could kill him. Upon meeting [[Jack]], whom he revered as a god inside his virtual reality prison, negotiations commenced and [[Dr. Lee Sung]] peacefully left this reality back to [[The Outside]].
-- Lastly, [[The Dreamers]] go to the [[World Trade Center]] for [[Nicolai Kadnikov]]. He has apparently gone mad and exists inside some kind of magical and mechanical prison which the [[The Dreamers|Dreamers]] pry open to discover...?
+- Lastly, [[The Dreamers]] go to the [[World Trade Center]] for [[Nicolai Kadnikov]]. He has apparently gone mad and exists inside some kind of magical and mechanical prison which the [[The Dreamers|Dreamers]] pry open to discover [[Nicolai Kadnikov]] believed reality was a simulation he was trying to destroy. He had already destroyed himself and was never found.
 - With all three [[The Outsiders|Outsiders]] dealt with the effects of [[The Scream]] cease. The sky returns to normal, [[Lillith]] chills the fuck out, and unlife goes on.
 ## Aftermath
-- It is revealed [[Jacob]] had been working closely with [[Cong Chang|The Dominus]] and is likely plotting [[Vinnie|Vinnie's]]release.
-- Something happens with [[Lillith]]?
+- It is revealed [[Jacob]] had been working closely with [[Cong Chung|The Dominus]] and is likely plotting [[Vinnie|Vinnie's]] release.
+- With the [[The Outsiders|Outsiders]] banished and the rift to the [[The Outside]] closed [[Lillith]] was safely trapped outside reality.

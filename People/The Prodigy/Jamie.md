@@ -5,12 +5,12 @@ aliases:
   - '"Kupala"'
 ---
 - [[Clan Malkavian]]
-- member of [[The Prodigy]]
-- paints
-- steals the clothes of those he feeds on
-- speaks slowly
+- Member of [[The Prodigy]]
+- Paints
+- Steals the clothes of those he feeds on
+- Speaks slowly
 - Imaginary friend named [[Louisa]]
-- responsible for sending [[The First Dream]]
-- mouthpiece and regularly possessee of [Kupala]]
-- on friendly terms with [[Bast]] and likely much of [[Clan Baali]]
-- sire of [[Lady Ito]]
+- Responsible for sending [[The First Dream]]
+- Mouthpiece and regularly possessee of [Kupala]]
+- On friendly terms with [[Bast]] and likely much of [[Clan Baali]]
+- Sire of [[Lady Ito]]

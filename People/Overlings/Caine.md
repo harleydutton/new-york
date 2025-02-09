@@ -1,0 +1,3 @@
+- Real
+- First vampire
+- Per the source books

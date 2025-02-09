@@ -1,4 +1,4 @@
 - The island in [[New York|NY]]
 - Has a big lighthouse haven on it
-- taken over by [[Vlad Dracul]]
-- previous haven of [[Maximillion]]
+- Taken over by [[Vlad Dracul]]
+- Previous haven of [[Maximillion]]

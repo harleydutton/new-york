@@ -1,4 +1,0 @@
-- empire state building is alexander's haven
-- ventrue elysium (city hall) not sure who runs it
-- jasper's elysium (somewhere)
-- brujah elysium (chrystler building) [[Krista's Elysium]]

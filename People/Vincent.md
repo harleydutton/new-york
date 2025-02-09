@@ -1,2 +1,3 @@
-[[Lady Ito]]'s manager
-Bossy, Drinks
+- [[Lady Ito|Izumi's]] manager
+- Bossy
+- Obscenely wealthy

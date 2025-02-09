@@ -2,6 +2,6 @@
 aliases:
   - Franchesca's
 ---
-- [[Cosimo|Cosimo's]] childer and briefly regent of [[The Chantry]]
-- killed by [[Eddie 'Bones' Bonesaw]]
-- has an [[The Outsiders|Outsider]] duplicate
+- [[Cosimo|Cosimo's]] childer and briefly regent of [[The Dominus' Chantry]]
+- Killed by [[Eddie 'Bones' Bonesaw]]
+- Has an [[The Outsiders|Outsider]] duplicate

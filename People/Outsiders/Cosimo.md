@@ -6,4 +6,4 @@ aliases:
 - Sire of [[Franchesca]]
 - [[Clan Tremere]]
 - [[The Outsiders|Outsider]]
-- currently a chair in [[The Hive]]
+- Currently a chair in [[The Hive]]

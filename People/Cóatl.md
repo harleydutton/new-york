@@ -1,2 +1,2 @@
-Avian aspected [[Clan Gangrel]]
-Trying to suck up to [[Jasper]] for some reason
+- Avian aspected [[Clan Gangrel]]
+- Trying to suck up to [[Jasper]] for some reason

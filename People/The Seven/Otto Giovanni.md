@@ -1,3 +1,2 @@
-[[Clan Tremere]]
-Progenitor of the [[Giovanni]]
-[[The Seven]]
+- One of [[The Seven]] original members of [[Clan Tremere]]
+- Progenitor of the [[Clan Giovanni]]

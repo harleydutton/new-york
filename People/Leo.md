@@ -1,1 +1,1 @@
-[[Lady Ito]]'s makeup artist
+- [[Lady Ito|Izumi's]] makeup artist

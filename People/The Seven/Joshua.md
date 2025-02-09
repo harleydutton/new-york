@@ -1,2 +1,3 @@
-Seems a lot like biblical Jesus
-Passed on his power to [[Amy]]
+- Literal fucking Jesus
+- Passed on his power to [[Amy]] through [[Diablerie]]
+- One of [[The Seven]] original members of [[Clan Tremere]]

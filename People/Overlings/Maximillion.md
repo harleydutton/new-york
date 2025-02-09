@@ -1,0 +1,3 @@
+- [[Clan Ventrue]]
+- Has emperor vibes
+- [[Diablerie|Diablerized]] by [[Chud]], [[Hasan]], [[Ash]], and [[Belladonna]]

@@ -7,4 +7,4 @@ aliases:
 - MMA fighter
 - [[Clan Lasombra]]
 - Member of [[The Prodigy]]
-- can use shadows to scry and teleport
+- Can use shadows to scry and teleport

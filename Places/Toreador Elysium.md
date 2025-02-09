@@ -1,3 +1,3 @@
-run by [[Jasper]]
-fixed location, musuem of art, east of park
-[[Clan Toreador]]
+- Run by [[Jasper]]
+- [[The Metropolitan Museum of Art]]
+- [[Clan Toreador]]

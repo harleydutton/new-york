@@ -1,4 +1,8 @@
-[[True Brujah]]
-Shot [[Tony]] with electricity/a railgun and "killed" him
-Formerly? of [[The New Gods]]
-Has some [[Vanessa]]s at the [[Museum of Nature and Science]]
+---
+aliases:
+  - Dr. Cantor's
+---
+- [[True Brujah]]
+- Shot [[Tony]] with a railgun and "killed" him
+- Stopped sharing his plans with [[The New Gods]]
+- Has some [[Vanessa|Vanessas]] at the [[Museum of Nature and Science]]

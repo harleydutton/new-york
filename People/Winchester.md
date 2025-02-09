@@ -1,1 +1,1 @@
-- [[Mr. Pickle|Ser Pickle]]'s steed
+- Steed of [[Mr. Pickle|Ser Pickle]]

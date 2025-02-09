@@ -1,1 +1,2 @@
-Dawg, Giant albino Louisiana swamp gator
+- Giant albino Louisiana swamp gator
+- Friend of [[Chud|Chud's]]

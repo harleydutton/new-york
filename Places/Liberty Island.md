@@ -1,2 +1,2 @@
-- statue of liberty
-- home of [[Ethan Pliskin]]
+- Statue of liberty
+- Home of [[Ethan Pliskin]]

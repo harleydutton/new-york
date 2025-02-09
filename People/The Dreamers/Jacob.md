@@ -7,4 +7,4 @@ aliases:
 - Sharp, nerdy, and bookish looking
 - [[Clan Tremere]]
 - From Clearwater, FL
-- Made inroads with [[The Chantry]] in [[New York|NY]] but scared of returning because he has participated in many valduries
+- Made inroads with [[The Dominus' Chantry]] in [[New York|NY]] but scared of returning because he has participated in many valduries

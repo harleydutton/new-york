@@ -3,5 +3,5 @@ aliases:
   - The Dominus
   - The Dominus's
 ---
-- Regent of [[The Chantry]]
+- Regent of [[The Dominus' Chantry]]
 - [[The Seven]]

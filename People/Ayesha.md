@@ -1,2 +1,1 @@
 - Sire of [[Hasan]]
-- per Sal this name is typically spelled "Ayesha", not "Aiesha"

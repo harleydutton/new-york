@@ -1,4 +1,4 @@
-Not an [[The Outsiders]] but member of that party from inside [[New York]] during [[The Time Loop]].
-[[Clan Tremere]].
-Died.
-used a bow, had auspex
+- Helped [[The Outsiders]] investigate the [[The Time Loop]]
+- [[Clan Tremere]]
+- Died during the events of [[The Time Loop]]
+- Used a bow

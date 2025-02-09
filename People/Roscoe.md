@@ -1,1 +1,1 @@
-[[The General]]'s horse
+- [[The General|The General's]] horse

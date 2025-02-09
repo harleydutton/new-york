@@ -1,1 +1,1 @@
-- the place in [[New York]]
+- The place in [[New York]]

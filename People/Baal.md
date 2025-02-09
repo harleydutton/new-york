@@ -1,4 +1,4 @@
 - Demon patron of [[Clan Baali]].
 - Summoned by [[Bast]] during [[The Chantry Heist]].
-- bubbly flesh crafting powers
-- betrayed [[Bast]] and sent to the [[Void]] by [[Billy Rubio]]
+- Bubbly flesh crafting powers
+- Betrayed [[Bast]] and sent to the [[Void]] by [[Billy Rubio]]

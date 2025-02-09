@@ -2,4 +2,7 @@
 aliases:
   - Alcott Dracul
 ---
-On good terms with [[Father Nicolas]] by virtue of being old school [[Clan Tzmisce]] royalty
+- On good terms with [[Father Nicolas]]
+- [[Clan Tzmisce]]
+- Old school royalty
+- Grandchilder of [[Vlad Dracul]]

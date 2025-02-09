@@ -1,1 +1,1 @@
-[[Lady Ito]]'s stylist and herd member
+- [[Lady Ito]]'s stylist and herd member

@@ -1,3 +1,3 @@
-- dead
-- maybe an angel
-- [[Ethan Pliskin]]'s sister
+- Dead
+- Maybe an angel
+- [[Ethan Pliskin|Ethan's]] sister

@@ -1,1 +1,1 @@
-[[Lady Ito]]'s newest childer
+- [[Lady Ito|Izumi's]] newest childer

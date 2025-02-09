@@ -1,2 +1,2 @@
 - A blank, very magical book that allows those who write upon it's pages to rett-con reality
-- Currently in possession of [[Cong Chang|The Dominus]]
+- Currently in possession of [[Cong Chung|The Dominus]]

@@ -1,1 +1,2 @@
-[[Clan Tzmisce]] sorcerer and of [[The Seven]]
+- Progenitor of [[Clan Tzmisce]]
+- One of [[The Seven]] original members of [[Clan Tremere]]

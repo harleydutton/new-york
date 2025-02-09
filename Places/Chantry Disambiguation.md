@@ -1,0 +1,3 @@
+- [[The Dominus' Chantry]] as run by [[Cong Chung|The Dominus]], and previously [[Franchesca]] and [[Cosimo]]
+- [[Vinnie's Upstate Libary]] was never a chantry, just [[Vinnie|Vinnie's]] haven/domain
+- [[Vinnie's Chantry]] as previously run by [[Vinnie]]

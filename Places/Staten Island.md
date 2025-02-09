@@ -1,1 +1,1 @@
-Where [[The General]] lives in a log cabin with his horse and retinue.
+- Where [[The General]] lives in a log cabin with his horse and retinue

@@ -1,1 +1,1 @@
-[[Dr. Cantor]]'s assistant/wife/childer
+- [[Dr. Cantor|Dr. Cantor's]] wife

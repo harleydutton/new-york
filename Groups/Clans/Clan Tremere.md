@@ -11,4 +11,4 @@ aliases:
 - [[Sven]]
 - [[Franchesca]]
 - [[Deocar]]
-- [[Cong Chang]]
+- [[Cong Chung]]

@@ -1,3 +1,4 @@
-The [[The Dreamers]]'s haven in NY. Also a dock.
-Lots of animals ghouled to [[Chud]] patrol the area
-[[Henrietta]] lives in the dumpster
+- [[The Dreamers|The Dreamer's]] haven in NY
+- Shipping dock
+- Lots of animals ghouled by [[Chud]] patrol the area
+- [[Henrietta]] lives in the dumpster

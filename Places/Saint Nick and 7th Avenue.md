@@ -1,3 +1,3 @@
-- near a confluence of ley lines
-- near [[Vinnie|Vinnie's]] library/the old chantry at the north end of [[Central Park|The Park]]
-- where [[Glenn]] has decided to put his haven
+- Near a confluence of ley lines
+- Near [[Vinnie's Chantry]] at the north end of [[Central Park|The Park]]
+- Where [[Glenn]] has decided to put his haven

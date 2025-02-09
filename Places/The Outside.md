@@ -1,2 +1,2 @@
 - Where [[The Outsiders|Outsiders]] come from
-- Alternate timelines created on the outside the bubble affected by [[Vinnie|Vinnie's]] [[The Time Loop]] when he was killed.
+- Alternate timelines created on the outside the bubble affected by [[Vinnie|Vinnie's]] [[The Time Loop]] when he was killed

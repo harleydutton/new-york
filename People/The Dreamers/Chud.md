@@ -24,21 +24,21 @@ aliases:
 	- [[Chud's Truck|Semi Truck]]
 	- Under-water welding equipment
 	- 8 [[Blood Stone|Blood Bullets]]
-	- [[Faerie Glasses]] (possibly lost after giving them to [[Lady Ito|Izumi]] on [[Ward Island]])
+	- [[Faerie Glasses]]
 	- The second red crate
-	- SAW LMG with phosphorous rounds (possibly lost on [[Ward Island]])
+	- SAW LMG with phosphorous rounds
 	- The [[Shinefist]]
 	- 2421 [[Blood Coins]] in various stashes
 		- 800 consumed by [[The Flock]]	
-		- hid 102 coins hidden in [[Lady Ito]]'s haven unknown to her
-		- gave 101 to [[Chalmers]]
-		- stashed 100 coins on [[Alcott's Yacht]]
-		- gave 100 coins to [[EX]] for safekeeping
-		- buried 100 coins in the woods outside the city
-		- buried 100 coins on [[Mill Rocks]]
-		- gave 99 to [[Hasan]] to bank with the [[Assamite Blood Bank]]
-		- planning on banking 100 with to [[Otto Giovanni]] through [[Ash]]
-		- gave 1 coin to [[Jamie]]
-		- gave 1 coin to [[Hasan]]
+		- Hid 102 coins hidden in [[Lady Ito|Izumi's]] haven unknown to her
+		- Gave 101 to [[Chalmers]]
+		- Stashed 100 coins on [[Alcott's Yacht]]
+		- Gave 100 coins to [[EX]] for safekeeping
+		- Buried 100 coins in the woods outside the city
+		- Buried 100 coins on [[Mill Rocks]]
+		- Gave 99 to [[Hasan]] to bank with the [[Assamite Blood Bank]]
+		- Planning on banking 100 with to [[Otto Giovanni]] through [[Ash]]
+		- Gave 1 coin to [[Jamie]]
+		- Gave 1 coin to [[Hasan]]
 		- Consumed 0 blood coins
-		- the rest are hidden in [[Chud's Truck]] and around [[Hell Gate]]
+		- The rest are hidden in [[Chud's Truck]] and around [[Hell Gate]]

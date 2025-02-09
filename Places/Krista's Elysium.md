@@ -2,3 +2,4 @@
 - Has [[The Red Heels]] as security
 - [[Clan Brujah]] stronghold
 - Holds with the [[Camarilla]]
+- [[Chrysler building]]

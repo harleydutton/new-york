@@ -1,2 +1,3 @@
-- haven of [[EX]]
-  
+- Haven of [[EX]]
+- Nightclub
+- High tech

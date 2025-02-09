@@ -1,3 +1,3 @@
 - [[Vera|Vera's]] indebted servant
-- Mage
-- Dark haired woman
+- [[Mage]]
+- Dark haired beauty

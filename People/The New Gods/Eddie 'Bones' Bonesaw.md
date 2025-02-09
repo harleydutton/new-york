@@ -1,5 +1,5 @@
-British anarch
-Died killing [[Franchesca]], ending her reign as regent
-Member of [[The New Gods]]
-Took over [[The Calling]] for a time
-Ran [[The Bookstore]]
+- British anarch
+- Died killing [[Franchesca]], ending her reign as regent
+- Member of [[The New Gods]]
+- Took over [[The Calling]] for a time
+- Ran [[The Bookstore]]

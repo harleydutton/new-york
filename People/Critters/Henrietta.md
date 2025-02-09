@@ -1,1 +1,2 @@
-[[Chalmers]] ghouled racoon
+- [[Chalmers]] ghouled racoon
+- Lives in the dumpster at [[Hell Gate]]

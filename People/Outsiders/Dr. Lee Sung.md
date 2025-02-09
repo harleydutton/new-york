@@ -1,6 +1,7 @@
-[[The Outsiders]]
-[[Clan Tremere]]
-bio and electro thaumiturge
-short as fuck: 4ft tall. Old and old-school. Wears silk clothes and gets carried around by zombies. Might have had a hat.
-Inventor of [[Blood Tea]].
-Found in [[The Simulation]] at one point. 
+- One of [[The Outsiders]]
+- [[Clan Tremere]]
+- Biothaumiturge and electromage
+- 4ft tall, old, old-school Chinese man
+- Wears silk robes, carried by zombies, uses a cane
+- Inventor and drinker of [[Blood Tea]]
+- Found in [[The Simulation]]
